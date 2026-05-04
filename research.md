@@ -1,6 +1,6 @@
 # Research
 
-_24 stickies in 2 frames._
+_25 stickies in 2 frames._
 
 ## FREETOO Reviews — Amazon (B0BK8SQ2X6, 5★) https://www.amazon.ca/FREETOO-Support-Anti-skid-Herniated-Sciatica/dp/B0BK8SQ2X6/ref=cm_cr_arp_d_product_top?ie=UTF8&th=1
 
@@ -457,5 +457,31 @@ I took basic medicine for never pain for two weeks, then started muscle relaxant
 With litytle walk and laying down is how I spent weeks after weeks until I was able to walk without pain.
 
 80 percent recovery was done, then I joined swimming. I did only free style and that too hand pull only for the first week. Next week I could do a full stroke with a slight kick and gradually increase it to a 200 meter lap 5 times with a few minutes rest. And I could pull off 99 percent healed in 4 months.
+
+### Sticky 11
+
+u/invalid_hai avatar
+invalid_hai
+•
+2y ago
+Bro I was in pain for 3 years got my endoscopic surgery done was pain-free for 2 months and now again got a bulge at the same disc I'm doomed so fucked mentally I wish I could do something about it my parents didn't allow me to rest completely and sent me to college after 2 months after surgery and that's where I think I got this bulge again (Indian parents it's impossible to convince them to let me get a drop year I tried twice before and after surgery and they called me coward for asking for a drop) I am completely in Denial I don't know what to do how to do doctor has asked me to take 1 year complete rest please advise me please what to do how to proceed I have lost all faith in myself
+
+
+
+Upvote
+3
+
+Downvote
+
+Reply
+
+Award
+
+Share
+
+[deleted]
+•
+8mo ago
+Yes thats the worst part about this. Society doesnt give a shit about disc herniations. Gotta keep driving and sitting for long periods which doesnt let it heal correctly. Just be glad you dont gave to work and take care of kids. Hope youre feeling better.
 
 ---
