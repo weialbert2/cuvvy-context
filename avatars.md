@@ -127,6 +127,22 @@ Distress-
 Discomfort -
 Hopelessness - 
 
+Direct emotional language from the reviews:
+
+- Desperation. "Out of desperation I bought this belt with high hopes" — Nikki.
+- Resignation / limiting life. "I have had to, despite myself, limit my passion" — Camylle. "I had to take several breaks" — Kim. "constantly asking him to slow down and wait for me" — Kim.
+- Low morale. "It undermined my morale not being able to keep up with my partner" — Kim.
+- Skepticism going in. "I put it on with, honestly, little hope" — Camylle.
+- Anxiety about fit. "scared it would not fit" — lucy.
+- Suffering. "I suffer immensely with lower back pain" — #1.
+- Worry while doing activities. "without worrying about making my injury worse" — Kimberley.
+
+When it works, the language flips:
+- "I am literally flabbergasted, stunned by the results." — Camylle.
+- "I felt my spine straight immediately." — Camylle.
+- "as soon as I put it on I immediately feel relief and comfort" — Princessa.
+- "I am thrilled" — Stella.
+
 ### Behaviors
 
 **Research notes:**
