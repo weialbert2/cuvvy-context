@@ -1,6 +1,6 @@
 # Research
 
-_35 stickies in 3 frames._
+_39 stickies in 3 frames._
 
 ## FREETOO Reviews — Amazon (B0BK8SQ2X6, 5★) https://www.amazon.ca/FREETOO-Support-Anti-skid-Herniated-Sciatica/dp/B0BK8SQ2X6/ref=cm_cr_arp_d_product_top?ie=UTF8&th=1
 
@@ -669,6 +669,106 @@ signalwarrant
 •
 10mo ago
 I had a similar experience. I had an L5 S1 fusion in 2020 then a follow up surgery to remove one of the screws in 2022. I wore lumbar support for years while working around the house, it never really improved my pain level. It also didn't make it worse either. A couple of months ago I decided to get back in the gym and do some light lower back work slowly. After a month or so of slow steady progress, my pain level is at least 50% less than before and I don't wear the lumbar support at all anymore.
+
+### Sticky 5
+
+1R0NS1DE_STEEL
+•
+1y ago
+For me these things are extremely uncomfortable, and hurt like hell. I am 6 months into a back injury with 4 herniated discs and a torn ligament. If I wear one of these I can only do so for a very short amount of time. They completely crush my sides, as well as my stomach.
+
+The moment I take it off, it's like all of the pain comes back in an instant that I was supposed to have been receiving for the past few hours due to the compression of it.
+
+### Sticky 6
+
+u/scvt2001 avatar
+scvt2001
+•
+1y ago
+I have the same herniation and tried this brace, it didn’t really do much, especially not for driving. I recommend a lumbar support pillow instead for driving. I tried one during my most recent herniation and it made a huge difference in how comfortable driving was/the pain I was in after driving.
+
+### Sticky 7
+
+SadEquivalent1967
+•
+1y ago
+I love mine! Makes a huge difference for me
+
+
+Upvote
+3
+
+Downvote
+
+Reply
+
+Award
+
+Share
+
+Dizz-ie10
+•
+1y ago
+Do the McGill big 3 instead. Strengthen your core and you won’t need this
+
+
+
+Upvote
+4
+
+Downvote
+
+Reply
+
+Award
+
+Share
+
+MissShopper
+•
+5mo ago
+What are the McGill big 3?
+
+
+
+Upvote
+2
+
+Downvote
+
+Reply
+
+Award
+
+Share
+
+Dizz-ie10
+•
+5mo ago
+Comment Image
+
+Upvote
+2
+
+Downvote
+
+Reply
+
+Award
+
+Share
+
+
+1 more reply
+
+### Sticky 8
+
+younggundc
+•
+1y ago
+•
+Edited 1y ago
+I have 2 slipped discs (going in 6 years now) and I bought one after about 2 years ago. Every practitioner told me not to get one and I can tell you that it’s saved my back quite a few times. I only wear it in the workshop or doing any sort of heavy lifting but in my opinion you can’t go wrong. I’ve done Pilates, focus on core etc, none of those will stop you from twisting too far and tweaking a nerve. Just don’t wear it as a daily brace and I think you’ll be fine.
 
 ---
 
