@@ -1,6 +1,6 @@
 # Research
 
-_40 stickies in 3 frames._
+_42 stickies in 3 frames._
 
 ## FREETOO Reviews — Amazon (B0BK8SQ2X6, 5★) https://www.amazon.ca/FREETOO-Support-Anti-skid-Herniated-Sciatica/dp/B0BK8SQ2X6/ref=cm_cr_arp_d_product_top?ie=UTF8&th=1
 
@@ -795,6 +795,72 @@ Energy_Turtle
 •
 1y ago
 Not for me but I can see why people use them. It's a stabilizing muscle replacement (or assistant depending on how you look at it.) It's does the job that we need muscles to do in order to live pain free. Those muscles aren't going to get stronger if we wear these. They'll go the other way. If someone is using it sparingly while also working on developing those muscles, then they'd probably be ok. But most people put it on and make a habit out of it. I didn't want to do that so it sits in my closet.
+
+### Sticky 10
+
+atomicmnm
+•
+1y ago
+They are $20-30. Helps with less strains throughout the day. Ultimately, you will be in more pain at the end of the day than at the beginning because of compression (gravity).
+
+Look into a microdiscectomy. Had one at 29 and I was very happy with the results. 40 now, still no issues.
+
+
+
+Upvote
+4
+
+Downvote
+
+Reply
+
+Award
+
+Share
+
+MissShopper
+•
+5mo ago
+That’s great to hear! 4 different neurosurgeons have told me I need an MD, but I’m terrified and I keep putting it off. I don’t want to need another one in a few years. What have you done to make sure you don’t reherniate?
+
+
+Upvote
+1
+
+Downvote
+
+Reply
+
+Award
+
+Share
+
+Iloveellie15
+•
+1y ago
+I’ve worn it after throwing my back out and it seems to help. My doctor just said to not use it long term though and to improve my core instead.
+
+### Sticky 11
+
+old_man_log4n
+•
+1y ago
+This is the exact same thing my Doctor and PT expert told me. Training core is important.
+
+
+Upvote
+11
+
+Downvote
+
+Reply
+
+Award
+
+Share
+
+
+6 more replies
 
 ---
 
