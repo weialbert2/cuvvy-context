@@ -1,6 +1,6 @@
 # Research
 
-_28 stickies in 2 frames._
+_29 stickies in 2 frames._
 
 ## FREETOO Reviews — Amazon (B0BK8SQ2X6, 5★) https://www.amazon.ca/FREETOO-Support-Anti-skid-Herniated-Sciatica/dp/B0BK8SQ2X6/ref=cm_cr_arp_d_product_top?ie=UTF8&th=1
 
@@ -621,5 +621,15 @@ Hey, I’m so sorry. I’m a grown man and cried all the time dealing with my he
 I got better approaching the 8-10 month mark after following what I said above. I actually had no idea what a herniated disc was for the first few months of my injury. I couldn’t walk properly, bend forward or backwards, or function properly. I gave up 2 dream jobs at the time (now no longer a barrier), and lost a lot of muscle and strength I’d built over my life.
 
 I’m totally better now and doing the best physically I’ve ever felt. I hope that gives you some hope - If you need to DM me please do so.
+
+### Sticky 15
+
+I’m in a similar position to you right now, did they initially give you a steroid or anything? I have a herniated disc in my neck that radiates excruciating pain down my right arm, mostly the shoulder. I’m a firefighter so this is a major issue for me. Happened about a month ago but the last two weeks has been horrible.
+
+Completely unable to sleep outside of maybe 2-4 hours a night in 1.5-2 hour bursts. When I wake up the pain is the worst, 8/10 at best, as I go about my day it improves slightly and then I reset it again every night.
+
+I’ve already had an MRI to confirm and even as someone who has no idea what they’re looking at it’s pretty clear I have a gigantic bubble popping out of my disc on the MRI, pretty unsettling.
+
+They gave me a steroid dose pack that gradually lowers the dose each day for 6 days. Yesterday I felt a little better from it and cleaned the house and that was a massive mistake as this morning I feel even worse then yesterday morning, a step back. I’m not to sure what to even do at this point. I’ve been exhausting all of my vacation time at work, I have to work 14 hours tonight and then I’m using my final vacation day on Tuesday for my whole 24 hour shift. That gives me basically another whole week to rest, hopefully it makes a difference.
 
 ---
