@@ -1,6 +1,6 @@
 # Research
 
-_39 stickies in 3 frames._
+_40 stickies in 3 frames._
 
 ## FREETOO Reviews — Amazon (B0BK8SQ2X6, 5★) https://www.amazon.ca/FREETOO-Support-Anti-skid-Herniated-Sciatica/dp/B0BK8SQ2X6/ref=cm_cr_arp_d_product_top?ie=UTF8&th=1
 
@@ -769,6 +769,32 @@ younggundc
 •
 Edited 1y ago
 I have 2 slipped discs (going in 6 years now) and I bought one after about 2 years ago. Every practitioner told me not to get one and I can tell you that it’s saved my back quite a few times. I only wear it in the workshop or doing any sort of heavy lifting but in my opinion you can’t go wrong. I’ve done Pilates, focus on core etc, none of those will stop you from twisting too far and tweaking a nerve. Just don’t wear it as a daily brace and I think you’ll be fine.
+
+### Sticky 9
+
+u/boostedride12 avatar
+boostedride12
+•
+1y ago
+Getting off using mine daily for 3 months. It helped a lot. My pain went away so I don’t want to be dependent on it
+
+
+Upvote
+2
+
+Downvote
+
+Reply
+
+Award
+
+Share
+
+u/Energy_Turtle avatar
+Energy_Turtle
+•
+1y ago
+Not for me but I can see why people use them. It's a stabilizing muscle replacement (or assistant depending on how you look at it.) It's does the job that we need muscles to do in order to live pain free. Those muscles aren't going to get stronger if we wear these. They'll go the other way. If someone is using it sparingly while also working on developing those muscles, then they'd probably be ok. But most people put it on and make a habit out of it. I didn't want to do that so it sits in my closet.
 
 ---
 
