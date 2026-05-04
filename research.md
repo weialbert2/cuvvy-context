@@ -1,6 +1,6 @@
 # Research
 
-_27 stickies in 2 frames._
+_28 stickies in 2 frames._
 
 ## FREETOO Reviews — Amazon (B0BK8SQ2X6, 5★) https://www.amazon.ca/FREETOO-Support-Anti-skid-Herniated-Sciatica/dp/B0BK8SQ2X6/ref=cm_cr_arp_d_product_top?ie=UTF8&th=1
 
@@ -559,5 +559,67 @@ Major-Committee4650
 •
 2y ago
 Hello, I am a tennis player too and ironically got a herniated on March 5th of this year. Still in a lot of pain, especially when sitting. I work from home so I don’t have much of a choice. Considering doing surgery next month. How are you doing now and are you able to play tennis again?
+
+### Sticky 14
+
+Upvote
+1
+
+Downvote
+
+Reply
+
+Award
+
+Share
+
+mydoggie1
+•
+2y ago
+I cannot tell you how much I needed to see this. I’m 3 months in and I feel like it will never end. I’m in pain all the time and my life, as you said, is completely on hold. I cry literally every day but I refuse to be hooked on pain pills and so even on Advil…I cry. I feel like my body is screwed up beyond repair and the many symptoms I have are messing with my mind and I worry it’s something absolutely terrible. When does the constant agony end? Please give me some hope. I cannot believe it still hurts this much 3 months in. Did you feel like like was over? Did you feel hopeless and depressed and like your body was completely screwed up? Did your legs ache all the time and your tailbone and your lower back? Thank you for posting this.
+
+
+
+Upvote
+1
+
+Downvote
+
+Reply
+
+Award
+
+Share
+
+u/KeyLime8035 avatar
+KeyLime8035
+•
+1y ago
+Hi, I came across your post and I honestly felt like I was reading my own thoughts. I’m also about 3 months in and dealing with constant pain — especially in my legs and lower back. I don’t take strong pain meds either, and every day feels like a struggle. I keep wondering if my body is just permanently broken. I hope you don’t mind me reaching out, but I really wanted to ask: how are you doing now? Have things gotten any better? Hearing from someone who’s been through this would mean so much to me right now. Thank you so much in advance.
+
+
+Upvote
+1
+
+Downvote
+
+Reply
+
+Award
+
+Share
+
+
+1 more reply
+u/redditor19305 avatar
+redditor19305
+OP
+•
+2y ago
+Hey, I’m so sorry. I’m a grown man and cried all the time dealing with my herniated disc. Like, not much ever makes me cry but this was a totally isolating type of pain that affected me mentally and physically. It’s torturous - and I know you can relate. I thought my life was beyond over. My back and sciatica was on my mind 24/7 for 8 months, from the second I woke up until I fell asleep (if I even could). I was obsessing over it, driving myself into more and more dread and panic.
+
+I got better approaching the 8-10 month mark after following what I said above. I actually had no idea what a herniated disc was for the first few months of my injury. I couldn’t walk properly, bend forward or backwards, or function properly. I gave up 2 dream jobs at the time (now no longer a barrier), and lost a lot of muscle and strength I’d built over my life.
+
+I’m totally better now and doing the best physically I’ve ever felt. I hope that gives you some hope - If you need to DM me please do so.
 
 ---
