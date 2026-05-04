@@ -120,6 +120,13 @@ When it works, the language flips:
 - "as soon as I put it on I immediately feel relief and comfort" — Princessa.
 - "I am thrilled" — Stella.
 
+**My version:**
+
+Anger - from not knowing how to fix it 
+Distress- 
+Discomfort -
+Hopelessness - 
+
 ### Behaviors
 
 **Research notes:**
