@@ -23,13 +23,21 @@ What they explicitly say they want (direct quotes):
 
 Common surface ask, in their own words: function. Walk, work, sleep, do daily tasks.
 
+**My version:**
+
+Suffer from spinal issues/ailments, looking for pain solution:
+
+I want to be free of back pain
+
 ### Whys (drilling to core)
 
 **Why? 1**
   - _Research:_ Why do I want to function (walk / work / sleep) again? — Because the pain is constant. "I suffer immensely with lower back pain" (#1). "Comes back regularly 🥺" (Toune). "Back going out on me, aggravating the Sciatic nerve" (Stephen).
+  - _My version:_ because It's ruining my life affecting my physcial/daily function
 
 **Why? 2**
   - _Research:_ Why does the pain matter beyond hurting? — Because it makes me the one falling behind. "It undermined my morale not being able to keep up with my partner and constantly asking him to slow down and wait for me" (Kim). "I had to take several breaks" (Kim).
+  - _My version:_ because I want to get my life back, to live pain free again, and able to do things
 
 **Why? 3**
   - _Research:_ Why does falling behind hurt? — Because I am giving up the things I love. "I have had to, despite myself, limit my passion for small dishes as much as possible" (Camylle, on cooking).
