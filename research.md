@@ -1,6 +1,6 @@
 # Research
 
-_18 stickies in 1 frames._
+_19 stickies in 1 frames._
 
 ## FREETOO Reviews — Amazon (B0BK8SQ2X6, 5★) https://www.amazon.ca/FREETOO-Support-Anti-skid-Herniated-Sciatica/dp/B0BK8SQ2X6/ref=cm_cr_arp_d_product_top?ie=UTF8&th=1
 
@@ -372,3 +372,24 @@ Prollyfukd47
 •
 3mo ago
 Been a month since my last post. Still painkiller free and doing regular PT once a week, still walking as much as I can but its been difficult given its been 0 to -15 the last three weeks.. I canceled my epidural that was scheduled for today and will continue my weekly PT and my home exercises they gave me. 2 months ago it seemed impossible id ever be saying this, I lived with the constant pain for over a year and was ready to give up. Im still not sure how one night im tossing and turning in pain and the next night I suddenly can sleep a whole night but I think I owe it to finally taking that leap and not being afraid of hurting myself did it. I've gone from 234 to 200 pounds in the last 65 days and I believe thats key to some relief. DONT GIVE UP
+
+### Sticky 5
+
+Effective-Intern-484
+•
+6mo ago
+I'd like some advice! I (M30) just found out I have a pretty serious disc hernia L5/S1. Injury happened at least 8 weeks ago but finally got an MRI. Injury I believe happened from unloading 5ton steel coils from a container I tried to use good form but I guess I overdid it anyway. I thought it would just be a bulge. But looks much worse than I expected. Been dealing with left leg sciatica for these 8 weeks. Pains have changed over the last 8 weeks. In the beginning the only pain I had was pretty bad sciatic pain when I sat for 5min or more. Then after a few days I started getting a tingling falling asleep feeling under my left foot that would start instantly when I sat down. So I stopped sitting entirely. And only sit when I'm on the toilet. I try to do everything with perfect posture. My back feels weak in 2 places, down at the bottom where my herniated disc is and in the middle where I think I have a slightly dislocated vertebrae. But pain is easily tolerable. I just don't do anything that might be painful. Surprisingly I have not had a lot of pain due to this, I think I have a high pain tolerance but I don't actually know. I've been doing all the wrong things till last week when I found out. Been stretching everything out, my back, my hamstrings, calves, everything even got chiroed regularly. I did somehow not put together that my sciatica was caused by a herniated disc, and wasn't aware how different you treat a HD vs sciatica alone. So now that I know what should I do? I'm reading back mechanic. And it helps a lot but it's not clear if I should start doing the McGill big 3 immediately. Or if I should wait and get more bed rest since my injury is likely still fresh from all the stretching. Or if I should start walking 10000 steps a day. I have not found a fully comfortable sleep position, it's not uncomfortable enough to prevent sleep, I think my mattress is a little soft. Sleeping on the floor makes my back feel good. But my hips and left leg get really tight.
+
+The biggest question right now is how much should I be doing at this stage?
+
+2nd question: I've seen several YouTube videos from Prof. Stuart McGill and others indicate there is a stretch/exercise that can help suck bulging discs back in. What are these exercises?
+
+3rd question: I'd love to know how soon I could expect to sit comfortably again? I don't sit anymore I haven't really sat on anything other than a toilet in weeks. My wife drives me around and I lay in the back seat when I have to get around. And my work is walking distance. So if you recovered from this, how long did it take?
+
+I also feel the need to say I am a Christian and know that Jesus can heal me instantly, I've seen Him do it for others. I also know, sometimes we need to go through rough seasons because sometimes the best way to grow is through pain and trials.
+
+I will likely make my own post of this yet, as I figure this will likely get buried...
+
+Here's some images of my back:
+
+Comment Image
