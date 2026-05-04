@@ -1,6 +1,6 @@
 # Research
 
-_33 stickies in 3 frames._
+_35 stickies in 3 frames._
 
 ## FREETOO Reviews — Amazon (B0BK8SQ2X6, 5★) https://www.amazon.ca/FREETOO-Support-Anti-skid-Herniated-Sciatica/dp/B0BK8SQ2X6/ref=cm_cr_arp_d_product_top?ie=UTF8&th=1
 
@@ -655,6 +655,20 @@ Friendly-Cut-5122
 •
 1y ago
 I wear one when riding my motorcycle due to having chronic low back problems and weakness and it’s changed riding experiences for sure I never ride with out it
+
+### Sticky 3
+
+Inevitable-Tank3463
+•
+1y ago
+I've worn one on and off since 1998, I don't know how much it actually helped, but it reminded me to be more conscious of my back and use proper body mechanics, because I worked as a CNA and rode horses, neither of them are good for your back. I think it saved me from doing improper movements, and if I was having a lot of pain, I'd put it down lower than usual and get it as tight as possible and it relieved the pain, almost like it was squishing my back back together, like it felt like my SI was loose before and not after
+
+### Sticky 4
+
+signalwarrant
+•
+10mo ago
+I had a similar experience. I had an L5 S1 fusion in 2020 then a follow up surgery to remove one of the screws in 2022. I wore lumbar support for years while working around the house, it never really improved my pain level. It also didn't make it worse either. A couple of months ago I decided to get back in the gym and do some light lower back work slowly. After a month or so of slow steady progress, my pain level is at least 50% less than before and I don't wear the lumbar support at all anymore.
 
 ---
 
