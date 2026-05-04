@@ -1,6 +1,6 @@
 # Research
 
-_19 stickies in 1 frames._
+_20 stickies in 1 frames._
 
 ## FREETOO Reviews — Amazon (B0BK8SQ2X6, 5★) https://www.amazon.ca/FREETOO-Support-Anti-skid-Herniated-Sciatica/dp/B0BK8SQ2X6/ref=cm_cr_arp_d_product_top?ie=UTF8&th=1
 
@@ -393,3 +393,13 @@ I will likely make my own post of this yet, as I figure this will likely get bur
 Here's some images of my back:
 
 Comment Image
+
+### Sticky 6
+
+u/Optimal-Geologist677 avatar
+Optimal-Geologist677
+•
+1mo ago
+Im doing great, I finally was able to start sitting about 2 weeks ago. Still have some discomfort sitting and dont like to do it for more than 10min, unless it's like a perfect chair then I can last 30min. My L5-S1 area hasn't really felt much pain in the last month. But my mid back and upper back have been and still are in daily discomfort and pain 2 out of 10. I understand my back is compensating for my injury. Im still not lifting more than 20lbs. McGill big 3 workouts make a significant difference. Taking collagen makes a difference. Full recovery seems to be on its way but still feels like I got a long road to being my active self. I always was fairly active 14000 steps a day no sweat. Back seems to be hyper sensitive. Still find ways to do stupid things occasionally and sometimes I pay for it with more pain for a day or 2. But overall recovery seems to keep on. Injury was in September last year. Meaning it's now been 6 months. Ive grown as a person through this rough experience. Im coming out more refined, and with a greater dependence on God.
+
+Thanks for asking...
