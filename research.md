@@ -1,6 +1,6 @@
 # Research
 
-_31 stickies in 2 frames._
+_32 stickies in 2 frames._
 
 ## FREETOO Reviews — Amazon (B0BK8SQ2X6, 5★) https://www.amazon.ca/FREETOO-Support-Anti-skid-Herniated-Sciatica/dp/B0BK8SQ2X6/ref=cm_cr_arp_d_product_top?ie=UTF8&th=1
 
@@ -660,3 +660,15 @@ Rob
 Reviewed in Canada on July 13, 2021
 Size: MediumVerified Purchase
 I purchased this product a little over a month ago and already the velcro is breaking down. I am having to pull the belt tighter and tighter to try and get to a spot where the velcro will hold. I weigh 154lbs so I sm not overweight I purchased this belt to help with the back pain I experience from the multiple sclerosis I have. I am very disappointed with this product and would not recommend. The quality doesn't last.
+
+### Sticky 3
+
+Go to backpain
+r/backpain
+•
+1y ago
+definitelynotmo3taz
+
+What do you think about lumbar support brace ?
+r/backpain - What do you think about lumbar support brace ?
+I (29m) have chronic lower back pain (L5-S1 hernia) and for me, driving is the worst. My dad, who also has L5-S1 herniation, suggested that I get a lumbar support brace, but I heard mixed opinions on it. What are your thoughts friends ?
