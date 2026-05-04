@@ -1,6 +1,6 @@
 # Research
 
-_26 stickies in 2 frames._
+_27 stickies in 2 frames._
 
 ## FREETOO Reviews — Amazon (B0BK8SQ2X6, 5★) https://www.amazon.ca/FREETOO-Support-Anti-skid-Herniated-Sciatica/dp/B0BK8SQ2X6/ref=cm_cr_arp_d_product_top?ie=UTF8&th=1
 
@@ -535,5 +535,29 @@ u/gr8sk8 avatar
 gr8sk8
 •
 8mo ago
+
+### Sticky 13
+
+MaterialRip7555
+•
+10mo ago
+You story gives me hope I had a car accident herniated disc hands a little numb/weak so wanted to do surgery right away without even trying anything else going to try orthopedic and acupuncture and take the things your taking and see if I can nip this in the butt I’m 35
+
+
+Upvote
+1
+
+Downvote
+
+Reply
+
+Award
+
+Share
+
+Major-Committee4650
+•
+2y ago
+Hello, I am a tennis player too and ironically got a herniated on March 5th of this year. Still in a lot of pain, especially when sitting. I work from home so I don’t have much of a choice. Considering doing surgery next month. How are you doing now and are you able to play tennis again?
 
 ---
