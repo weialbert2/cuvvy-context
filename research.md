@@ -1,6 +1,6 @@
 # Research
 
-_25 stickies in 2 frames._
+_26 stickies in 2 frames._
 
 ## FREETOO Reviews — Amazon (B0BK8SQ2X6, 5★) https://www.amazon.ca/FREETOO-Support-Anti-skid-Herniated-Sciatica/dp/B0BK8SQ2X6/ref=cm_cr_arp_d_product_top?ie=UTF8&th=1
 
@@ -483,5 +483,57 @@ Share
 •
 8mo ago
 Yes thats the worst part about this. Society doesnt give a shit about disc herniations. Gotta keep driving and sitting for long periods which doesnt let it heal correctly. Just be glad you dont gave to work and take care of kids. Hope youre feeling better.
+
+### Sticky 12
+
+u/Impressive-Piccolo43 avatar
+Impressive-Piccolo43
+•
+2y ago
+Let me share my story and it may give you some hope. I am 55 yrs male and a very active tennis player. On March 15, 2024 I was on the floor in my bathroom for almost one hour with most severe and painful back spasm and leg pain. With my spouse help, I finally crawled into the bed. Then I was in my bed for 2 days and could not even get up for basic needs. My primary care Dr. prescribed prednisone (for inflammation), naproxen (pain) and muscle relaxant, which started to work within a day. I finally got out of the bed but still had very bad leg pain from sciatica. I could barely stand for less than 2 minutes. Got my MRI done and discovered a major herniated disc l4-l5 and l5-S1 - 7mm on the left slide that was pinching the nerve. I got some relief from predinasone and started PT. Two weeks later, things got worst with more leg pain when prednisone wore off. I could not sit, walk, drive, had pain level of 5-7 even while lying down. I finally saw a spine dr. who recommended epidural injection as 1st intervention. I was nearly disabled for a month and got my epidural injection on April 25th. It got worst after Epidural to a degree of 9/10 pain. My pain management dr. mentioned that with such a large herniated disc, Epidural steroid had very little room to work and it irritated the nerves even more. Those 10 days after Epidural were the worst pain ever in my life. Epidural works for most people but not for me. Dr. also prescribed gabapentin 300 mg and referred me back to the surgeon with surgery recommendation. I also was taking 10+ advils a day plus Percocet (opioid) that helped with pain management. Finally, I met with the surgeon on May 16th who explained the hemilaminatomy and discectomy surgery process and mentioned that it takes 3 week to get insurance approval and other surgery clearance. While I was waiting for surgery clearance I restarted a few more PT sessions. I barely could drive to PT prior to the memorial day.
+
+Now the good part. Suddenly, over the memorial day weekend something triggered (my 10th week after herniation) and I woke up with less pain. Every day since then, the pain level is going down. I spoke with my surgeon on May 29th and shared my pain level. Although my surgery is scheduled for June 18th, he mentioned that I could avoid surgery if I continue to make improvement. He also mentioned that in 90% of the cases, between 2 months to 6 months, the disc starts to shrink on its own. and It may be the case with me.
+
+Things that helped me:
+
+Taking Collagen powder with coffee/tea (once or twice a day), and magnesium pills
+
+did ice on my back and heat on my legs few times daily
+
+bought tens machine on amazon and doing that on my back once or twice a day
+
+bought hemp, thc creams (Goddess brand) to help with pain
+
+Doing PT at home 1-2 times - mostly Mackenzie method
+
+I was taking pain killers when needed (but now after 12 week, I am off all pills ),
+
+Taking walks in the house (whatever I could, now I am doing 1-2 miles outside since last few days)
+
+Taking a lot of rest (almost 70% of my 1st 10weeks I was lying on my back)
+
+No alcohol, but drinking a lot of water
+
+I have lost 10 pounds in these 12 weeks that is helping as well
+
+All the best, I will keep you all posted on my progress. I think I have a long way to go for full recovery to play tennis again but the leg pain is mostly gone after 12 weeks. I do get some back pain while driving. I guess I am the centralization phase.
+
+
+
+Upvote
+2
+
+Downvote
+
+Reply
+
+Award
+
+Share
+
+u/gr8sk8 avatar
+gr8sk8
+•
+8mo ago
 
 ---
