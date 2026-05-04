@@ -1,6 +1,6 @@
 # Research
 
-_15 stickies in 1 frames._
+_17 stickies in 1 frames._
 
 ## FREETOO Reviews — Amazon (B0BK8SQ2X6, 5★) https://www.amazon.ca/FREETOO-Support-Anti-skid-Herniated-Sciatica/dp/B0BK8SQ2X6/ref=cm_cr_arp_d_product_top?ie=UTF8&th=1
 
@@ -260,3 +260,68 @@ At this point I don’t even care what the exact diagnosis is anymore. I just wa
 I’m exhausted, fed up, and tired of living like this, but I’m still trying to understand what the hell is going on. If anyone has dealt with something similar, pain that’s constant but worsens when you rest your back, clean scans, and no clear answers, I’d really appreciate hearing what helped or where you’d look next.
 
 Thanks for reading.
+
+### Sticky 2
+
+I have herniation in L3/L4, L4/L5, and bulging L5/S1. People on here keep saying to walk and stand up straight but no matter what I do I can't do it. I can't even walk to my car, barely can walk to my kitchen. It's excruciating. I am in the boat of feeling like my life is over and it will never get better. I just turned 26. The pain started around April 2025 but got very bad in October 2025, and has just gotten worse every day since then. I am steadily at a 9, 10 feeling like I need an ambulance. I can't do anything, I had to quit both jobs. I got an exercise bike but I can only go for so long. I can't sleep. I wake up at least 5 times every night from the pain. NSAIDs don't work. Ice/heat barely makes a difference. Nothing helps and I don't know what to do anymore. I am seeing a neurosurgeon in May, and I can't fathom dealing with this for that long. Has anyone felt like this and gotten better? :(
+
+
+
+Upvote
+3
+
+Downvote
+
+Reply
+
+Award
+
+Share
+
+navivid
+•
+1mo ago
+UPDATE: i ended up meeting my neurosurgeon early because of a cancellation, and got my surgery within 2 weeks after! Yesterday was my 3 week post op! Since day 1, other than incision pain and muscle soreness, i was able to walk and sleep and everything! I didnt even take pain meds after day 3!!!! Right now the last few days ive had some pain that my doctor said is normal at this point and should go away, but other than that ive been practically pain free. Reading my comment again feels like a different life already not even a month later!
+
+I really really hope you are able to get help like I did! It genuinely felt like magic and i feel so alive again and walk every day :)
+
+### Sticky 3
+
+Back
+
+Go to backpain
+r/backpain
+•
+4y ago
+redditor19305
+
+Do herniated discs even heal?
+6 months out of a herniation where I spent 2-3 months at a 8-10 pain and now I’m at about a 2-6. I’ve done nothing productive but to just rest and continue on. PT and chiro made me feel worse and the only thing that makes me feel better is Advil which I haven’t had the need to take again. I was told by my doctor and “spine specialist” that herniated discs will probably heal in young people to the point where they’ll never have pain again until they’re older.
+
+I realize this probably isn’t a forever thing, and those who’ve freed themselves on back pain don’t usually hop around this sub much, but is there any truth to this? I feel like my entire life has been on hold. I’m worried about my future career choice because of this. I had plans to become a police Officer, and with a herniated disc at this age I feel totally screwed. The pain has gone WAY down, and I can sit for hours and lift somewhat heavy things, but still, I feel stuck. If anyone HAS healed fully from a HD or BD, I’d love to hear from you. Thanks
+
+EDIT: To anyone new who comes across this as you’re probably doomscrolling like I was, I’ve recovered. I wrote this over a year ago when I was in severe pain 6 months out of a nasty disc herniation. I can do just about anything I did before (with some caution).
+
+Advice: give it more time than you think. 1 year minimum.
+
+Avoid chiros and PT’s for the most part. You most likely do not need them for a disc herniation. I saw around 5 total and every time I’d be leaving in more pain than I was originally in. It drains your confidence and bank account. There is no quick fix or relief for herniated discs + sciatica, and you’re better off taking an Advil / Tylenol. Don’t be afraid to take NSAIDs daily.
+
+Walk when you can. If it’s too painful, stop. Stand when it hurts to sit and sit when it hurts to stand. Find a comfortable position to sleep in. Keep a NEUTRAL spine and stand up straight. Absolutely NO BENDING FORWARD or NO BENDING BACKWARDS if it causes pain. Your flexibility will come back. I couldn’t even come close to bending 2 inches forward without my leg locking up and having 2 hours of nerve pain after.
+
+Be careful stretching. If it causes any pain the next day DONT DO IT. Your hamstrings, calves, glutes and quads will be extremely tight as they’re compensating for your herniated disc. They’ll be pulling in either direction and stretching may feel good, but if you overdo it it’ll pull more and more on your disc.
+
+Do core workouts (plank only in my case) moderately. Lower your overall inflammation and lose weight if you can. You have to stop constantly injuring your already herniated disc by any way possible.
+
+Lastly, try your best to be positive. I know how depressing it is. I had to give up a lot during that 1+ year time. It’s physically and mentally the most painful thing I, and many of you have experienced. You can and WILL get better.
+
+
+Upvote
+526
+
+Downvote
+
+333
+Go to comments
+
+
+Share
