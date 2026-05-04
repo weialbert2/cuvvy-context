@@ -1,6 +1,6 @@
 # Research
 
-_29 stickies in 2 frames._
+_30 stickies in 2 frames._
 
 ## FREETOO Reviews — Amazon (B0BK8SQ2X6, 5★) https://www.amazon.ca/FREETOO-Support-Anti-skid-Herniated-Sciatica/dp/B0BK8SQ2X6/ref=cm_cr_arp_d_product_top?ie=UTF8&th=1
 
@@ -633,3 +633,22 @@ I’ve already had an MRI to confirm and even as someone who has no idea what th
 They gave me a steroid dose pack that gradually lowers the dose each day for 6 days. Yesterday I felt a little better from it and cleaned the house and that was a massive mistake as this morning I feel even worse then yesterday morning, a step back. I’m not to sure what to even do at this point. I’ve been exhausting all of my vacation time at work, I have to work 14 hours tonight and then I’m using my final vacation day on Tuesday for my whole 24 hour shift. That gives me basically another whole week to rest, hopefully it makes a difference.
 
 ---
+
+## Loose stickies (not in any frame)
+
+### Sticky 1
+
+Kas
+1.0 out of 5 stars No back support
+Reviewed in Canada on December 4, 2021
+Size: LargeVerified Purchase
+I'm a healthcare worker and have tried this product. This product does not keep your spine straight. The plastic ribs are very soft and do not support your back. In fact, when you put the belt on the plastic ribs even don't stay at the back, as falsely shown by pictures. Likely people gave good rating because they might have the false impressing that they are getting back support when in fact it is the stomach/tommy that is getting squeezed which is not healthy for you! Don't waste your money on this.
+9 people found this helpful
+Helpful
+Report
+
+Dave
+1.0 out of 5 stars Didn’t work for me and the value just isn’t there
+Reviewed in Canada on August 2, 2019
+Size: MediumVerified Purchase
+I have really bad lower back pain and it especially gets worst after sessions at the gym. I thought this would have been really good and address some of the pain according to the raving reviews. First, the Velcro strap was too long and it was never secure or felt secure. I didn’t feel any support so I didn’t feel like it was propping or supporting my lower. It just felt like someone got cardboard and sort of loosely taped it around my lower back area. This is why I rated the comfort as okay—because I didn’t feel anything! This isn’t really cheap either but I thought f it works, it should be worth every penny because everyone only has one back.
