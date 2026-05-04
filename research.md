@@ -1,6 +1,6 @@
 # Research
 
-_30 stickies in 2 frames._
+_31 stickies in 2 frames._
 
 ## FREETOO Reviews — Amazon (B0BK8SQ2X6, 5★) https://www.amazon.ca/FREETOO-Support-Anti-skid-Herniated-Sciatica/dp/B0BK8SQ2X6/ref=cm_cr_arp_d_product_top?ie=UTF8&th=1
 
@@ -652,3 +652,11 @@ Dave
 Reviewed in Canada on August 2, 2019
 Size: MediumVerified Purchase
 I have really bad lower back pain and it especially gets worst after sessions at the gym. I thought this would have been really good and address some of the pain according to the raving reviews. First, the Velcro strap was too long and it was never secure or felt secure. I didn’t feel any support so I didn’t feel like it was propping or supporting my lower. It just felt like someone got cardboard and sort of loosely taped it around my lower back area. This is why I rated the comfort as okay—because I didn’t feel anything! This isn’t really cheap either but I thought f it works, it should be worth every penny because everyone only has one back.
+
+### Sticky 2
+
+Rob
+1.0 out of 5 stars Very poor quality
+Reviewed in Canada on July 13, 2021
+Size: MediumVerified Purchase
+I purchased this product a little over a month ago and already the velcro is breaking down. I am having to pull the belt tighter and tighter to try and get to a spot where the velcro will hold. I weigh 154lbs so I sm not overweight I purchased this belt to help with the back pain I experience from the multiple sclerosis I have. I am very disappointed with this product and would not recommend. The quality doesn't last.
