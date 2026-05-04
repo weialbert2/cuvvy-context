@@ -61,6 +61,10 @@ Hints in the research that point past pain relief toward identity / capability:
 
 What's hinted: they don't just want pain gone, they want to be the capable person they were before. Said cautiously — the reviews give relief language, not identity language directly.
 
+**My version:**
+
+To get my life back, do the things I love again, working out, tasks, working, to function normally again.
+
 ### Why NOW
 
 **Research notes:**
@@ -86,6 +90,10 @@ What they tried before, in their words:
   - "would role up" — lucy
   - "tended to want to slip down and pull your pants down" — Dave Brown
 - Doctor advised against bracing. "I've been told not to rely on using a back brace but sometimes I need one in order to stand, walk or do daily tasks" — #1.
+
+**My version:**
+
+Because I've tried multiple differnent solutions
 
 ### Emotions
 
