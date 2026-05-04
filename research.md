@@ -1,6 +1,6 @@
 # Research
 
-_20 stickies in 1 frames._
+_22 stickies in 1 frames._
 
 ## FREETOO Reviews — Amazon (B0BK8SQ2X6, 5★) https://www.amazon.ca/FREETOO-Support-Anti-skid-Herniated-Sciatica/dp/B0BK8SQ2X6/ref=cm_cr_arp_d_product_top?ie=UTF8&th=1
 
@@ -403,3 +403,35 @@ Optimal-Geologist677
 Im doing great, I finally was able to start sitting about 2 weeks ago. Still have some discomfort sitting and dont like to do it for more than 10min, unless it's like a perfect chair then I can last 30min. My L5-S1 area hasn't really felt much pain in the last month. But my mid back and upper back have been and still are in daily discomfort and pain 2 out of 10. I understand my back is compensating for my injury. Im still not lifting more than 20lbs. McGill big 3 workouts make a significant difference. Taking collagen makes a difference. Full recovery seems to be on its way but still feels like I got a long road to being my active self. I always was fairly active 14000 steps a day no sweat. Back seems to be hyper sensitive. Still find ways to do stupid things occasionally and sometimes I pay for it with more pain for a day or 2. But overall recovery seems to keep on. Injury was in September last year. Meaning it's now been 6 months. Ive grown as a person through this rough experience. Im coming out more refined, and with a greater dependence on God.
 
 Thanks for asking...
+
+### Sticky 7
+
+Hey fellow disk bulge people.
+
+Im glad to read OP got through it. Im here because Im currently on my third time with a lower lumbar herniated disk.
+
+I had it in my late 20s, late 30s and now mid 40s. I also had it in my neck, which is torture.
+
+First time I did it was from too much desk work leaning naturally into my left. Second time was repetitively turning left to try and walk my new dog, and this time its from duties at a temp job...again, turning and bending to the left. 😅 The disk causes a muscle and nerve in my right glute to spasm and go so tight, I have to roll out the pain on my butt with a spiky ball. NOT on my back and spine.  I sleep on my side (opposite side of my tight glute) and with a pillow between my legs.
+
+First two times I had this, Iwould see a physio and he helped fix me fast, and all the stretches helped. This time, no physio or stretches. Just rest and walking. 
+
+This time its taking MUCH longer to heal (being older) but its more of a 5 to 7 when it does kick off. Ive had it for three months and I expect to not be better for another few. But really it won't be completely better until next year! I wouldn't feel confident running around a gym room in a few months.
+
+Im annoyed because it disrupts my whole lifestyle. I go to the gym for stress relief and had a very toned body, and that's now all gone in a few months. Trying to also keep weight down (all my muscle weight dropped off). I cant do yard work or anything spontaneous. 
+
+So, I totally understand younger people here feeling stuck and frustrated. Just take your time, don't rush the healing.
+
+All I can do for exercise is walking daily or a push up stretch, to push my disk back in. I do what OP says, sit until I cant, then stand until I cant. Luckily I have a desk that goes up and down.
+
+This time I'd relate it to the first time I got the disk injury. Apparently its a weakness in my mum's side of the family, the way our lumbar spine is shaped. We get a nice butt out of it, but at the same time I cant lift weights or do lots of twisting or it kicks it off. So, its squats for me.
+
+I hope no one ever experiences this in their neck disks. To heal that I had to lay down for a month. No work at all.
+
+### Sticky 8
+
+u/Valuable_Pineapple77 avatar
+Valuable_Pineapple77
+•
+10mo ago
+Hate having this handicap, but it’s forcing me to work on squats to get things near my feet. This prevents me from rounding my back. I’m kind of excited about working out the squat muscles
