@@ -4,7 +4,7 @@ _Each section has two parts: **Research notes** (extracted from real reviews) an
 
 ## Avatar 1 — The Ailment-Ridden Sufferer
 
-**Awareness:** Product aware
+**Awareness:** Solution aware · managed-chronic severity · functional but compromised
 
 ### Surface Desire
 
@@ -25,25 +25,25 @@ Common surface ask, in their own words: function. Walk, work, sleep, do daily ta
 
 **My version:**
 
-Suffer from spinal issues/ailments, looking for pain solution:
-
-I want to be free of back pain
+"I just want to be able to walk through the store, sit at my desk, garden in the afternoon, and sleep through the night without my back stopping me halfway through."
 
 ### Whys (drilling to core)
 
 **Why? 1**
   - _Research:_ Why do I want to function (walk / work / sleep) again? — Because the pain is constant. "I suffer immensely with lower back pain" (#1). "Comes back regularly 🥺" (Toune). "Back going out on me, aggravating the Sciatic nerve" (Stephen).
-  - _My version:_ because It's ruining my life affecting my physcial/daily function
+  - _My version:_ Why do I want my activities back? Because the pain keeps coming back and I'm tired of being limited.
 
 **Why? 2**
   - _Research:_ Why does the pain matter beyond hurting? — Because it makes me the one falling behind. "It undermined my morale not being able to keep up with my partner and constantly asking him to slow down and wait for me" (Kim). "I had to take several breaks" (Kim).
-  - _My version:_ because I want to get my life back, to live pain free again, and able to do things
+  - _My version:_ Why does that matter beyond hurting? Because I'm slowing down, taking breaks, asking people to wait. I'm falling behind.
 
 **Why? 3**
   - _Research:_ Why does falling behind hurt? — Because I am giving up the things I love. "I have had to, despite myself, limit my passion for small dishes as much as possible" (Camylle, on cooking).
+  - _My version:_ Why does falling behind hurt? Because I'm losing things I love — hobbies, work I'm proud of, vacations, time with my family done my way.
 
 **Why? 4**
   - _Research:_ Why does giving things up hurt that much? — (Inferred — no direct quote.) Identity. They built a life around being capable; the brace is a route back to that self. Hint: "honestly changed my life" (#9), "It's a veritable Life Changer" (Camylle), "I felt my spine straight immediately" (Camylle) — relief language with an identity tone.
+  - _My version:_ Why does losing them hurt that much? Because they're who I am. Without them, I'm not me.
 
 ### Core Desire
 
@@ -63,7 +63,7 @@ What's hinted: they don't just want pain gone, they want to be the capable perso
 
 **My version:**
 
-To get my life back, do the things I love again, working out, tasks, working, to function normally again.
+Capability and identity. To be the version of themselves from before this back issue defined their day — the one who didn't plan around it, didn't ask people to slow down, didn't have to give things up.
 
 ### Why NOW
 
@@ -78,8 +78,11 @@ What they say triggered THIS purchase:
 
 **My version:**
 
-I'm in immense pain, and need to solve this immediately, 
-
+- A new diagnosis from a doctor
+- A flare worse than usual that rest and OTC meds didn't fix
+- A doctor or PT mentioned trying a brace
+- Hit a wall after PT or chiro didn't deliver
+- Pain has been chronic long enough they're ready to try something they previously dismissed
 
 ### Why NOT before
 
@@ -98,7 +101,13 @@ What they tried before, in their words:
 
 **My version:**
 
-Because I've tried multiple differnent solutions, chiro, pt, others, was not able to cure it. Facing the same pains regularly
+- Doctor said don't rely on a brace
+- Fear of becoming dependent or weakening muscles
+- Belief they should fix this with exercise, PT, lifestyle
+- Not sure a brace works for their specific diagnosis
+- Didn't want to waste money on yet another thing that won't work
+- Kept meaning to look into it but never did
+- Didn't want to look old or sick at work
 
 ### Emotions
 
@@ -122,26 +131,19 @@ When it works, the language flips:
 
 **My version:**
 
-Anger - from not knowing how to fix it 
-Distress- 
-Discomfort -
-Hopelessness - 
+Surface emotions (what they'd name first if asked):
+- Frustrated
+- Tired
+- Skeptical
+- Hopeful
 
-Direct emotional language from the reviews:
-
-- Desperation. "Out of desperation I bought this belt with high hopes" — Nikki.
-- Resignation / limiting life. "I have had to, despite myself, limit my passion" — Camylle. "I had to take several breaks" — Kim. "constantly asking him to slow down and wait for me" — Kim.
-- Low morale. "It undermined my morale not being able to keep up with my partner" — Kim.
-- Skepticism going in. "I put it on with, honestly, little hope" — Camylle.
-- Anxiety about fit. "scared it would not fit" — lucy.
-- Suffering. "I suffer immensely with lower back pain" — #1.
-- Worry while doing activities. "without worrying about making my injury worse" — Kimberley.
-
-When it works, the language flips:
-- "I am literally flabbergasted, stunned by the results." — Camylle.
-- "I felt my spine straight immediately." — Camylle.
-- "as soon as I put it on I immediately feel relief and comfort" — Princessa.
-- "I am thrilled" — Stella.
+Deep emotions (what's underneath, how the surface emotion actually manifests):
+- Defeated — tried things, nothing's stuck
+- Worn down, resigned — tired of being tired
+- Burned, cautious — don't want to be let down again
+- Quietly desperate — still looking, still hoping, won't say it out loud
+- Embarrassed — slowing people down, struggling visibly with everyday things
+- A little ashamed — that they need a brace at all, that their body has become this
 
 ### Behaviors
 
@@ -174,6 +176,31 @@ How they buy:
 After buying (signals):
 - "I never write reviews but felt this one deserved one" — #1.
 - Tell family. "my brother-in-law and my sister have bought many belts but this one was the best one they ever got" — Jennett.
+
+**My version:**
+
+Behaviors — coping (how they manage the pain day-to-day):
+- Takes NSAIDs (Advil, Tylenol), sometimes daily
+- Rests, lies down, avoids sitting
+- Stops or limits activities they love
+- Uses ice, heat, TENS units, heating pads
+- Walks when manageable
+- Adjusts home setup — standing desk, sleep position, mattress
+- Works from home or reduces hours during flares
+- Family helps with driving, errands, lifting
+- Avoids bending, lifting, twisting
+- Sleeps on side with a pillow between knees
+
+Behaviors — research & buying (how they look for solutions and how they finally buy):
+- Reads about back-pain solutions broadly, not braces specifically
+- Asks their doctor or PT about bracing as a category
+- Lurks Reddit and forums looking at what worked for their diagnosis
+- Watches "do back braces work?" YouTube videos before product reviews
+- Reads Quora long-form answers
+- Bookmarks Amazon listings without buying — adds to cart, leaves, comes back
+- Triggered to buy by a bad flare, or a doctor / friend recommendation
+- Often starts with the cheapest option to test the category
+- Hesitant first purchase — would prefer to spend less in case it doesn't work
 
 ### Demographics
 
@@ -210,6 +237,13 @@ Overlap notes (hinted):
 - Princessa also says "I work physically" → also fits Avatar 4.
 - Kimberley gardens and has long-standing L4 injury → also fits Avatar 3.
 - Camylle frames it as "I love cooking, I spent whole days there" → fits Avatar 3 cleaner.
+
+**My version:**
+
+Only fill if load-bearing. Otherwise leave thin.
+- Men and women, 30–70
+- Has at least one named back diagnosis (herniated disc, sciatica, DDD, lumbar sprain, scoliosis, EDS, fractured vertebra)
+- Still working, still in their hobbies, still functional — managing it with friction
 
 ### Language
 
@@ -265,5 +299,19 @@ Honest / under-promising phrases they trusted:
 - "doesn't take all the pain away" — Brenda
 - "didn't take the pain completely away but gave some welcome relief" — Brenda
 - "I cannot say this is the best, but it certainly gives me some relief" — Stephen
+
+**My version:**
+
+Their actual phrasing — useful for ad copy and hooks.
+
+Pain words: suffer · comes back regularly · going out on me · pulled my back · flare up · episode
+
+Hesitation phrases: thinking about getting a brace · is it bad to wear one · should I get one · my doctor mentioned a brace but · keep meaning to try one
+
+Category objections: don't want to depend on it · should fix this without a crutch · worried it'll make my back lazy · will it weaken my muscles
+
+Activity verbs they want back: bend · sit · move · walk · garden · putter · work · sleep · drive · lift · twist
+
+Their clinical vocabulary: L4-L5 · L1-L2 · T11 · DDD · sciatic nerve · lumbar support · herniated / bulging disc · core strength
 
 ---
