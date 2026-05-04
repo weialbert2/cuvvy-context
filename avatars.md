@@ -76,6 +76,11 @@ What they say triggered THIS purchase:
 - New diagnosis. "Out of desperation I bought this belt with high hopes after diagnosed with a bulging lumbar disc" — Nikki.
 - Long-standing injury still active. "25 years ago" + "now degenerative disc disease" — #1. "L4 injury 20+ years ago" — Kimberley. "Two slipped discs L1, L2" — Stephen. "4 herniated discs" — Princessa. "Ehlers-Danlos" — #9. "I had 2 lumbar sprains and my back pain comes back regularly" — Toune.
 
+**My version:**
+
+I'm in immense pain, and need to solve this immediately, 
+
+
 ### Why NOT before
 
 **Research notes:**
@@ -93,7 +98,7 @@ What they tried before, in their words:
 
 **My version:**
 
-Because I've tried multiple differnent solutions
+Because I've tried multiple differnent solutions, chiro, pt, others, was not able to cure it. Facing the same pains regularly
 
 ### Emotions
 
