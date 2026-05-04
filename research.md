@@ -1,6 +1,6 @@
 # Research
 
-_22 stickies in 1 frames._
+_24 stickies in 2 frames._
 
 ## FREETOO Reviews — Amazon (B0BK8SQ2X6, 5★) https://www.amazon.ca/FREETOO-Support-Anti-skid-Herniated-Sciatica/dp/B0BK8SQ2X6/ref=cm_cr_arp_d_product_top?ie=UTF8&th=1
 
@@ -216,7 +216,7 @@ I work physically and this belt is great, as soon as I put it on I immediately f
 
 ---
 
-## Loose stickies (not in any frame)
+## Herniated Disc/ Back Pain Reddit Threads
 
 ### Sticky 1
 
@@ -435,3 +435,27 @@ Valuable_Pineapple77
 •
 10mo ago
 Hate having this handicap, but it’s forcing me to work on squats to get things near my feet. This prevents me from rounding my back. I’m kind of excited about working out the squat muscles
+
+### Sticky 9
+
+u/YesImSleepie avatar
+YesImSleepie
+•
+2y ago
+Its been over a year :/ im still young but having this plus left leg sciatica for over a year is so demotivating. I can consider myself lucky since i only really have pain when i move my leg in certain ways or if I bend too much, otherwise it doesnt bother me, and im thankful its not as bad as most other people have.. but the fact that nothing is seemingly working to make it go away makes me really worried that its just going to get worse.
+I just needed to rant somewhere a little, your edit makes me feel a little better and hopeful but man :/
+
+### Sticky 10
+
+Nice-Owl6688
+•
+2y ago
+I had the herniation at l4/5 S l5s1 both ther herniation pressing the nerves on 3 places two sides and little centre. I have all kinds of passion from hip, thigh, knee and calf till even toes.
+
+I took basic medicine for never pain for two weeks, then started muscle relaxants and sleep mediycin.
+
+With litytle walk and laying down is how I spent weeks after weeks until I was able to walk without pain.
+
+80 percent recovery was done, then I joined swimming. I did only free style and that too hand pull only for the first week. Next week I could do a full stroke with a slight kick and gradually increase it to a 200 meter lap 5 times with a few minutes rest. And I could pull off 99 percent healed in 4 months.
+
+---
