@@ -1,6 +1,6 @@
 # Research
 
-_17 stickies in 1 frames._
+_18 stickies in 1 frames._
 
 ## FREETOO Reviews — Amazon (B0BK8SQ2X6, 5★) https://www.amazon.ca/FREETOO-Support-Anti-skid-Herniated-Sciatica/dp/B0BK8SQ2X6/ref=cm_cr_arp_d_product_top?ie=UTF8&th=1
 
@@ -325,3 +325,50 @@ Go to comments
 
 
 Share
+
+### Sticky 4
+
+Prollyfukd47
+•
+4mo ago
+I saw that my comment had 700 views so figured I'd update my progress since I'm sure theres a lot of people that feel helpless right now and are going through the same thing... 
+
+Backstory about me. Im 32 years old, 6' and was 240lbs when my sciatic nerve started effecting me slighly back in late april. I had just left my job and moved may 31st, I dont know if I made it worse moving or what, but come june and july I could only stand or walk for 10 mins at a time. I'd be sweating and out of breath just from the pain of standing/ walking. I could only fall asleep on icepacks. It was all sciatic pain in leg, no lower back pain. I was basically bedridden until end of July where I could walk again but not sit.
+
+July I had my MRI and was diagnosed with severe herniated disc at L5/S1, moderate bulge at L4/L5, moderate bulge at L3/L4. Also with spinal stenosis and what xrays show is very small bone spur. 
+
+I tried chiropractic and I think that made it worse because pain traveled to my hip area so I stopped that. I've gotten regular massage therapy every 2 weeks since the start and it helps for a couple days after. 
+
+October i finally was able to see a neurosurgeon that explained the diagnosis to me and basically said i need to do PT and get epidural steroid injection. Oh, and lose weight or he wouldn't do surgery on me if it came to that..
+
+Eventually I decided F*ck it.. I had to do something different. I was exhausted with the thought of pain and being afraid of it so I started walking in December, which is tough for me because i dont have a treadmill and I live in Michigan's Upper Peninsula, but i stuck with it anyway. I was desperate for something to work.
+
+Something so simple has CHANGED MY LIFE. 
+
+I've been walking a steady 5 miles a day since  the day I posted 21 days ago. I've lost about 20lbs since December 1st, so that probably helped too.
+
+I haven't taken ANY medication since jan 1 and I've been able to sleep comfortably every night since then as well, without waking up in pain every few hours. I work on my feet for 50% of the day and the other 50% im in a truck, the sitting doesnt bother me too much at all now. I had forgotten what its like to get through a day where your mind isnt completely focused on the pain every waking moment. 
+
+I started PT today (1/13/2026) and have my first epidural injection in a couple weeks. My hope is that with the PT stretching and the steroid injection (and being able to sleep comfortably) my body can heal better. Bottom line is I stopped being afraid I was going to hurt more by exercising. Just do it otherwise you never will. My physical therapist echoed that sentiment when I met him today, and said thats a problem he has with a lot of patients. Just dont overdo yourself and if it starts hurting then tone it down. 
+
+Side note: I've found that having my samsung smartwatch is 1000% the reason I stuck with the exercise since its always on and I can track everytbing I do, I'd recommend it if you can get a smartwatch and track your health.
+
+I hope this can help even one person make a turn around, I know your pain is physical AND mental when it comes to this
+
+
+
+Upvote
+5
+
+Downvote
+
+Reply
+
+Award
+
+Share
+
+Prollyfukd47
+•
+3mo ago
+Been a month since my last post. Still painkiller free and doing regular PT once a week, still walking as much as I can but its been difficult given its been 0 to -15 the last three weeks.. I canceled my epidural that was scheduled for today and will continue my weekly PT and my home exercises they gave me. 2 months ago it seemed impossible id ever be saying this, I lived with the constant pain for over a year and was ready to give up. Im still not sure how one night im tossing and turning in pain and the next night I suddenly can sleep a whole night but I think I owe it to finally taking that leap and not being afraid of hurting myself did it. I've gone from 234 to 200 pounds in the last 65 days and I believe thats key to some relief. DONT GIVE UP
