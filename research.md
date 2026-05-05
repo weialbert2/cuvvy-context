@@ -1,6 +1,6 @@
 # Research
 
-_48 stickies in 4 frames._
+_55 stickies in 4 frames._
 
 ## FREETOO Reviews — Amazon (B0BK8SQ2X6, 5★) https://www.amazon.ca/FREETOO-Support-Anti-skid-Herniated-Sciatica/dp/B0BK8SQ2X6/ref=cm_cr_arp_d_product_top?ie=UTF8&th=1
 
@@ -893,6 +893,64 @@ Colour Name: BlackSize: Medium (Waist: 33.5"-39.4")Verified Purchase
 This back support belt really helped when I had lower back pain. I work in construction, so having proper support during physical work is very important.
 It’s easy to adjust and tighten to the level that feels comfortable. Provides good support without restricting movement.
 Overall, very helpful and practical for active jobs.
+
+### Sticky 4
+
+Kandace
+5.0 out of 5 stars Great purchase
+Reviewed in Canada on November 7, 2025
+Colour Name: BlackSize: X-Large (Waist: 45.3"-51.2")Verified Purchase
+I found it relieved alot of the pressure in my lower back. I bought it when my disks were bulged and it did help. Wasn't the most comfortable to sit in but if your on your feet it does the job it claims
+
+### Sticky 5
+
+Minh Le
+5.0 out of 5 stars Best brace for back pain
+Reviewed in Canada on September 23, 2025
+Colour Name: BlackSize: Small (Waist: 27.6"-33.5")Verified Purchase
+This is the best product money can buy, it fits and help me instantly, my back and hip nave been causing my walking extremely difficult. I have walked with small steps and afraid of loosing the balance, this brace stiffen my back giving me confidence to move around.
+
+I recommend other to try to get its huge benefit
+
+### Sticky 6
+
+Amazon Customer
+5.0 out of 5 stars Mom said it’s good
+Reviewed in Canada on December 2, 2025
+Colour Name: BlackSize: X-Large (Waist: 45.3"-51.2")Verified Purchase
+Got this for my mom. She said it works to ease some of her back pain
+
+### Sticky 7
+
+Dhj
+5.0 out of 5 stars Works well so far
+Reviewed in Canada on October 7, 2025
+Colour Name: BlackSize: Large (Waist: 39.4"-45.3")Verified Purchase
+So far so good. Bought for my boyfriend who has a bad back and strenuous job. He is impressed so far. He wears size 34" pants so I went with the size L and it fits perfectly.
+
+### Sticky 8
+
+Rita Murray
+5.0 out of 5 stars Wearing the back brace
+Reviewed in Canada on July 16, 2025
+Colour Name: BlackSize: Medium (Waist: 33.5"-39.4")Verified Purchase
+It is exactly what I ordered and expected. I wanted something to hold me from slouching over all the time when I am on the computer and it does that. Hopefully I will learn to do without it and hold my back straight. It supports my back beautifully.
+
+### Sticky 9
+
+David Belliveau
+5.0 out of 5 stars Great, High quality, Durable
+Reviewed in Canada on August 10, 2025
+Colour Name: BlackSize: Medium (Waist: 33.5"-39.4")Verified Purchase
+This brace is excellent, I have 2 slipped discs in my back and could never find any kind of relief, but this takes a bit of weight off and definitely notice a difference in next day pain after hard labour.
+
+### Sticky 10
+
+kevin
+5.0 out of 5 stars Comfortable and helpful
+Reviewed in Canada on October 9, 2025
+Colour Name: BlackSize: Small (Waist: 27.6"-33.5")Verified Purchase
+Bought for my wife and she says it has helped her back aches and is also quite comfortable to wear.
 
 ---
 
