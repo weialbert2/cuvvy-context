@@ -1,6 +1,6 @@
 # Research
 
-_44 stickies in 3 frames._
+_45 stickies in 3 frames._
 
 ## FREETOO Reviews — Amazon (B0BK8SQ2X6, 5★) https://www.amazon.ca/FREETOO-Support-Anti-skid-Herniated-Sciatica/dp/B0BK8SQ2X6/ref=cm_cr_arp_d_product_top?ie=UTF8&th=1
 
@@ -924,3 +924,10 @@ Downvote
 
 191
 Go to comments
+
+### Sticky 5
+
+Deeandrm
+•
+2mo ago
+Whatever u do...NEVER GO TO A CHIROPRACTOR. I got swept up in the youtube videos of the cracking sound and almost went to a coworkers brother ( who was a chiro) to have it done. Luckily i didnt but I have a friend who went to a chiropractor and basically ended up with chronic pain and when she was going to sue years later she found out another client had killed him.... so yeah please dont go to a chiropractor for this.
