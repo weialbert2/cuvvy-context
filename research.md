@@ -1,6 +1,6 @@
 # Research
 
-_46 stickies in 3 frames._
+_46 stickies in 4 frames._
 
 ## FREETOO Reviews — Amazon (B0BK8SQ2X6, 5★) https://www.amazon.ca/FREETOO-Support-Anti-skid-Herniated-Sciatica/dp/B0BK8SQ2X6/ref=cm_cr_arp_d_product_top?ie=UTF8&th=1
 
@@ -864,6 +864,20 @@ Share
 
 ---
 
+## https://www.amazon.ca/Rakiie-Ergonomic-Adjustable-Breathable-Herniated/dp/B0DB5Q21HF/ref=sr_1_6?crid=3V7ARGEW91M1O&dib=eyJ2IjoiMSJ9.8jtW8CCBk05BG0Th1ldYB7sjXaFJrmGYXaK0fRdjEGoHa1vODniGsLdpNOrFIWczRxTq2W5J2poi_0RAB6LT8X2xqMtsRZzNTPj21KiSwx9T3z_cKGShhltTskbGlCG-3mRhQWCVHjtp2HVXuGeKh1b22EMMrOTg8YvH8sfIgjAOEeBXVCnj4qW8EvvFaVlfnZ3VIIgB0ncfmXNvba7ww4nNEAJo9Q6VeFZaaj9CjiHbn_fUqLA4gMV4YJizkKI_1T6hIjiw3cdht4OcJFh-5ogBBPHo4Ng10YiIYgC0Jms.gNodagkxnKS5WQ0cScrI8mAmkyvS06_4Gzo_HcoUQjU&dib_tag=se&keywords=back%2Bbelt&qid=1778012137&sprefix=back%2Bbel%2Caps%2C181&sr=8-6&th=1
+
+### Sticky 1
+
+Report
+
+Customer
+1.0 out of 5 stars Doesn't even come close to fitting
+Reviewed in the United States on December 15, 2024
+Colour Name: BlackSize: XX-Large (Waist: 51.2"-62.9")Verified Purchase
+The sizes are wildly inaccurate. If you are large-waisted - DO NOT BUY THIS PRODUCT. I bought the XX-large because it said it not only would fit me, but would also fit someone with a waist 6 inches bigger than me. Now, I have to spend $7.99 to return it with UPS pickup, because I no longer drive and cannot take it to one of the free drop-off points without paying for roundtrip Lyft. Very, very disappointed with this purchase.
+
+---
+
 ## Loose stickies (not in any frame)
 
 ### Sticky 1
@@ -931,7 +945,3 @@ Deeandrm
 •
 2mo ago
 Whatever u do...NEVER GO TO A CHIROPRACTOR. I got swept up in the youtube videos of the cracking sound and almost went to a coworkers brother ( who was a chiro) to have it done. Luckily i didnt but I have a friend who went to a chiropractor and basically ended up with chronic pain and when she was going to sue years later she found out another client had killed him.... so yeah please dont go to a chiropractor for this.
-
-### Sticky 6
-
-https://www.amazon.ca/Rakiie-Ergonomic-Adjustable-Breathable-Herniated/dp/B0DB5Q21HF/ref=sr_1_6?crid=3V7ARGEW91M1O&dib=eyJ2IjoiMSJ9.8jtW8CCBk05BG0Th1ldYB7sjXaFJrmGYXaK0fRdjEGoHa1vODniGsLdpNOrFIWczRxTq2W5J2poi_0RAB6LT8X2xqMtsRZzNTPj21KiSwx9T3z_cKGShhltTskbGlCG-3mRhQWCVHjtp2HVXuGeKh1b22EMMrOTg8YvH8sfIgjAOEeBXVCnj4qW8EvvFaVlfnZ3VIIgB0ncfmXNvba7ww4nNEAJo9Q6VeFZaaj9CjiHbn_fUqLA4gMV4YJizkKI_1T6hIjiw3cdht4OcJFh-5ogBBPHo4Ng10YiIYgC0Jms.gNodagkxnKS5WQ0cScrI8mAmkyvS06_4Gzo_HcoUQjU&dib_tag=se&keywords=back%2Bbelt&qid=1778012137&sprefix=back%2Bbel%2Caps%2C181&sr=8-6&th=1
