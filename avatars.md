@@ -4,7 +4,7 @@ _Each section has two parts: **Research notes** (extracted from real reviews) an
 
 ## Avatar 1: The Back Pain / Sciatica / Lower-Back Sufferer
 
-**Awareness:** Solution aware · medium severity · diagnosed or self-aware · functional but compromised
+**Awareness:** Solution aware
 
 ### Surface Desire
 
