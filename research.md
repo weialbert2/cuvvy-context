@@ -1,6 +1,6 @@
 # Research
 
-_60 stickies in 4 frames._
+_62 stickies in 4 frames._
 
 ## FREETOO Reviews — Amazon (B0BK8SQ2X6, 5★) https://www.amazon.ca/FREETOO-Support-Anti-skid-Herniated-Sciatica/dp/B0BK8SQ2X6/ref=cm_cr_arp_d_product_top?ie=UTF8&th=1
 
@@ -1019,6 +1019,27 @@ Reviewed in Canada on October 30, 2025
 Colour Name: BlackSize: X-Large (Waist: 45.3"-51.2")
 Had it for about a week now. It’s really well made and I love that additional tabs at the sides you can pull even tighter to adjust the level of support needed.
 I got it for sciatica pain and it does help, but it doesn’t address the issue further down the leg/ butt/ hip if you have radiating nerve pain, however, I will be using this daily until I can rehab my core.
+
+### Sticky 16
+
+Doug.F
+5.0 out of 5 stars Good Quality Back Brace.
+Reviewed in Canada on March 22, 2025
+Amazon Vine Customer Review of Free Product( What's this? )
+If you've never experienced a bout of sciatica, you probably won't appreciate this support brace as much as you will if such an attack occurs. Having been recently visited by such an outbreak, I jumped at the chance to review this Rakiie back support. Back driven pain like that is no fun at all.
+The first thing to note is that the product sizing runs small. I am a standard medium (size 34 pants), and although the Winter months have added a little unwanted extra in unfortunate areas, I am still a medium, albeit barely. :-) This support belt does fit but not by much. Since the support provided by the Rakiie product can be strongly adjusted by using the two adjustment straps on the belt itself, I would have preferred that the main length was longer as there isn't a lot of overlap for the Velcro attachment components to engage. Not a deal breaker as the belt still fits comfortably enough, but definitely something to bear in mind when ordering and considering which size is optimal for your needs.
+Using the adjustment straps allows tightening of the belt to provide maximum support to the problem areas of the back. It can be tightened down quite strongly. Which since firm support for the back and posture correction is the very reason for this product, is a very good feature. You will surely notice the effects when this unit is properly engaged attached and adjusted to your comfort level. The adjustment straps themselves are very firmly secured and show no indication that they might become detached or torn .
+As I related earlier, I have just gotten over a bout of sciatica and didn't enjoy it at all. Based upon the helpful comments posted in previous reviews, I am hopeful if (fingers crossed I never need it) another flareup occurs, that I will have a way of at least reducing the discomfort until the episode subsides. On that basis alone, this is an easy to recommend product.
+Helpful
+Report
+
+### Sticky 17
+
+BuySavvyCanada
+5.0 out of 5 stars supports lower back well and chiropractor approved
+Reviewed in Canada on June 29, 2025
+Amazon Vine Customer Review of Free Product( What's this? )
+I have been having intense lower back pain, so it was recommended that I get a back brace. I ended up having a pinched nerve and this helped to support back where I needed it. This brace is great because you feel supported without being uncomfortable. I walked around the house, did chores and even went out for walks with it on without have to adjust it all the time. I like how adjustable it is to fit around your body. I wanted it to have a tighter fit and I was able to get that with this brace. I ended up bringing it to my chiropractor and they were happy with my choice and said that is supported my back well due to the supportive lumber pad in it. the chiropractor did say it would be more ideal to have the lumbar support throughout the whole lower back but was still pleased with the support it did give.
 
 ---
 
