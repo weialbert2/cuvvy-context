@@ -1,6 +1,6 @@
 # Research
 
-_43 stickies in 3 frames._
+_44 stickies in 3 frames._
 
 ## FREETOO Reviews — Amazon (B0BK8SQ2X6, 5★) https://www.amazon.ca/FREETOO-Support-Anti-skid-Herniated-Sciatica/dp/B0BK8SQ2X6/ref=cm_cr_arp_d_product_top?ie=UTF8&th=1
 
@@ -902,3 +902,25 @@ red_quinn
 Lower back pain for weeks and hurts to do the most basic thing
 r/backpain - figure : a diagram of the abdomen.
 About 3 weeks ago i woke up with lower back pain. I dont remember getting hurt or anything like that. Ive attached a picture to point where exactly it hurts, its in the red circle inside the yellow line. It hirts when i try to sit and get up, when i try to go down to pick up something. Laying down on my stomach doesnt hurt and its the only way i can sleep. If i try to move or go on my side it hurts. Nothing seems to make it better. I cant do the most basic things, like cleaning and doing laundry. I havent looked for treatment, ive only look for stretches or exercises to help me get rid of it. But the ones ive come across arent for where my pain area is located.
+
+### Sticky 4
+
+Go to blackladies
+r/blackladies
+•
+2mo ago
+blank_statement
+
+recent lower back pain
+Health & Wellness 🍎
+r/blackladies - recent lower back pain
+so i’ve always had a curved lower back but i’ve never had issues with back pain, I just turned 22 and randomly i’ve been getting a lot of pain when i stand for too long and even when i lay on my stomach. do you ladies have any remedy for this or advice? (picture for reference)
+
+
+Upvote
+817
+
+Downvote
+
+191
+Go to comments
