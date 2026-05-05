@@ -1,6 +1,6 @@
 # Research
 
-_43 stickies in 3 frames._
+_44 stickies in 3 frames._
 
 ## FREETOO Reviews — Amazon (B0BK8SQ2X6, 5★) https://www.amazon.ca/FREETOO-Support-Anti-skid-Herniated-Sciatica/dp/B0BK8SQ2X6/ref=cm_cr_arp_d_product_top?ie=UTF8&th=1
 
@@ -902,3 +902,7 @@ red_quinn
 Lower back pain for weeks and hurts to do the most basic thing
 r/backpain - figure : a diagram of the abdomen.
 About 3 weeks ago i woke up with lower back pain. I dont remember getting hurt or anything like that. Ive attached a picture to point where exactly it hurts, its in the red circle inside the yellow line. It hirts when i try to sit and get up, when i try to go down to pick up something. Laying down on my stomach doesnt hurt and its the only way i can sleep. If i try to move or go on my side it hurts. Nothing seems to make it better. I cant do the most basic things, like cleaning and doing laundry. I havent looked for treatment, ive only look for stretches or exercises to help me get rid of it. But the ones ive come across arent for where my pain area is located.
+
+### Sticky 4
+
+For your current avatar build (Avatar 1, Solution Aware → Product Aware), Problem Aware voices aren't directly mineable. Their voice doesn't sound like Avatar 1's voice. Importing their content would dilute the avatar.
