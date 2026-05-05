@@ -1,6 +1,6 @@
 # Research
 
-_63 stickies in 4 frames._
+_64 stickies in 4 frames._
 
 ## FREETOO Reviews — Amazon (B0BK8SQ2X6, 5★) https://www.amazon.ca/FREETOO-Support-Anti-skid-Herniated-Sciatica/dp/B0BK8SQ2X6/ref=cm_cr_arp_d_product_top?ie=UTF8&th=1
 
@@ -1122,3 +1122,18 @@ Deeandrm
 •
 2mo ago
 Whatever u do...NEVER GO TO A CHIROPRACTOR. I got swept up in the youtube videos of the cracking sound and almost went to a coworkers brother ( who was a chiro) to have it done. Luckily i didnt but I have a friend who went to a chiropractor and basically ended up with chronic pain and when she was going to sue years later she found out another client had killed him.... so yeah please dont go to a chiropractor for this.
+
+### Sticky 6
+
+Back
+
+Go to Sciatica
+r/Sciatica
+•
+2y ago
+Antique_Ad1235
+
+Guys, I fixed my sciatica
+So I had been dealing with sciatica pain from a herniated disc that I injured while lifting. I had the pain for over a year and it would be mild some days and unbearable on others and I couldn’t figure out why. I had been googling recently on how to fix and found nothing of value besides gimmick pills to ease the pain. Then out of nowhere I start getting sciatica pain relief ads on instagram. I disregarded most of them, but one ad showed a doctor trying to sell his “plan for relief” but in the background it showed video of a person pushing the top of their hips forward to create the “natural” bend in their spine above the hip. In this moment I realized that my hips were almost always in a relaxed position (top of pelvis leaning back, bottom of pelvis more forward). That day I started actively pushing the top of my pelvis forward and pushing my butt out. This felt very uncomfortable, as it felt like my spine was mildly compressing what I assumed was my herniated disc (not unbearable pain) and the lower back/hip muscles I was using to push my top of hips out became very tired and sore (I assume from not being used) but I kept at it. I started to put a small pillow under my lower back before going to sleep, which wasn’t the most comfortable but I’d leave it there for about an hour before throwing it off my bed to sleep in a more relaxed position. I also purchased a lumbar support pillow for my office chair at work to force the top of my hips forward. After about FIVE days of forcing this position, the sciatica pain started to get milder and milder, but the seventh day it was almost completely gone. I’m on day 14 now and I not longer have any nerve pain and I am absolutely pumped. I thought I was going to have to deal with this for the rest of my life. Just wanted to share my success to give you all some hope.
+
+My apologies that this is so long winded, and please excuse typos as I am doing this on my phone.
