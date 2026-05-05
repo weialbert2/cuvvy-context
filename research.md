@@ -1,6 +1,6 @@
 # Research
 
-_58 stickies in 4 frames._
+_60 stickies in 4 frames._
 
 ## FREETOO Reviews — Amazon (B0BK8SQ2X6, 5★) https://www.amazon.ca/FREETOO-Support-Anti-skid-Herniated-Sciatica/dp/B0BK8SQ2X6/ref=cm_cr_arp_d_product_top?ie=UTF8&th=1
 
@@ -975,6 +975,50 @@ Skyler_Rose
 Reviewed in Canada on April 6, 2025
 Colour Name: BlackSize: X-Large (Waist: 45.3"-51.2")Verified Purchase
 Great quality back brace!! Fits perfectly, I put it inder my clothing and sometimes wear it like a belt. Provides excellent support for my lower back.
+
+### Sticky 14
+
+SoLo
+5.0 out of 5 stars Great Back Support! Really helps, Worth it!!
+Reviewed in Canada on April 27, 2025
+Colour Name: GraySize: Large (Waist: 39.4"-45.3")Amazon Vine Customer Review of Free Product( What's this? )
+Click to play video
+I am really impressed with this back support brace. Recently I hurt my back while shifting furniture and soon pain became so bad that I needed to visit emergency. After treatment I felt better, but still not fully recovered. So, I tried many other Lumber support braces, but they weren’t that great, few of them were so soft that I was feeling like wrapping a piece of cloth. Actually I was looking for a sturdy back support.
+
+During browsing, when I saw this RAKIIE back brace with integrated SOLID lumber support, I immediately went for it. After trying now, I can confirm that this brace is exactly what I was looking for. Very easy to put on and great support for lower back. I wear it all day. Excellent quality. It has the main large belt with center Velcro adjustment and then 2 more smaller elastic belts with Velcro adjustments both sides of the brace.
+
+The brace is made of elastic fabric and can be adjusted to desired level of compression. It is equipped with 4 compression straps that provide secondary compression to the back. I like that the backing mimics the curvature of the lumbar spine for a fit. It is comfortable and really helps posture. My lower back pain is well under control now. This is surely helping a lot and becomes now my daily use support!
+
+PROS:
++ High Quality material - premium breathable fabric and 4D knitted mesh
++ Comfortable and My back feels well supported
++ Equipped with 4 compression straps for better support
++ Stays in place well and don't slip when moving around
++ Very sturdy and light weight
++ Durable and breathable
++ Fits perfectly and adjustable
++ Good amount of padding without being bulky or unattractive
++ Removable pad provides good lumbar support
++ Love the Velcro, tension and position-adjustable straps
++ Reasonably priced
++ Great value for money
+
+CONS:
+- Removable padding is good but still it would have been better if it was little more firm
+- There is a large gap between provided 4 memory alloy strips (more spread-out from the centre), so support needed specifically to the centre lower back gets distributed, in my opinion addition of couple more alloy strips exactly behind the centre back would be make this brace provide more firm and stiffer support to back. But this belt is good for people who are looking for good soft but effective daily back brace support. (I found there is another variant back brace product from same RAKIIE brand which has very solid and perfect back support! I use both as per my need)
+
+Overall, now my back feels less sore and well supported. I can do chores comfortably that I was afraid of doing earlier. Based on my experience, I highly recommend this Rakiie back brace to anyone who has a stressful back muscle!!
+
+### Sticky 15
+
+Report
+
+Ashley
+5.0 out of 5 stars Quality product
+Reviewed in Canada on October 30, 2025
+Colour Name: BlackSize: X-Large (Waist: 45.3"-51.2")
+Had it for about a week now. It’s really well made and I love that additional tabs at the sides you can pull even tighter to adjust the level of support needed.
+I got it for sciatica pain and it does help, but it doesn’t address the issue further down the leg/ butt/ hip if you have radiating nerve pain, however, I will be using this daily until I can rehab my core.
 
 ---
 
