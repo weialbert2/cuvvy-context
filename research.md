@@ -1,6 +1,6 @@
 # Research
 
-_46 stickies in 4 frames._
+_48 stickies in 4 frames._
 
 ## FREETOO Reviews — Amazon (B0BK8SQ2X6, 5★) https://www.amazon.ca/FREETOO-Support-Anti-skid-Herniated-Sciatica/dp/B0BK8SQ2X6/ref=cm_cr_arp_d_product_top?ie=UTF8&th=1
 
@@ -875,6 +875,24 @@ Customer
 Reviewed in the United States on December 15, 2024
 Colour Name: BlackSize: XX-Large (Waist: 51.2"-62.9")Verified Purchase
 The sizes are wildly inaccurate. If you are large-waisted - DO NOT BUY THIS PRODUCT. I bought the XX-large because it said it not only would fit me, but would also fit someone with a waist 6 inches bigger than me. Now, I have to spend $7.99 to return it with UPS pickup, because I no longer drive and cannot take it to one of the free drop-off points without paying for roundtrip Lyft. Very, very disappointed with this purchase.
+
+### Sticky 2
+
+Jeff
+5.0 out of 5 stars Good and cheap!
+Reviewed in Canada on April 29, 2026
+Colour Name: BlackSize: Medium (Waist: 33.5"-39.4")Verified Purchase
+Provides really good support. In my case it helps quite a bit when golfing. There are some braces not even half as good and more expensive at the pharmacy.
+
+### Sticky 3
+
+Artem
+5.0 out of 5 stars Great support for work – adjustable and comfortable
+Reviewed in Canada on February 25, 2026
+Colour Name: BlackSize: Medium (Waist: 33.5"-39.4")Verified Purchase
+This back support belt really helped when I had lower back pain. I work in construction, so having proper support during physical work is very important.
+It’s easy to adjust and tighten to the level that feels comfortable. Provides good support without restricting movement.
+Overall, very helpful and practical for active jobs.
 
 ---
 
