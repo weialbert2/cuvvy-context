@@ -1,6 +1,6 @@
 # Research
 
-_42 stickies in 3 frames._
+_43 stickies in 3 frames._
 
 ## FREETOO Reviews — Amazon (B0BK8SQ2X6, 5★) https://www.amazon.ca/FREETOO-Support-Anti-skid-Herniated-Sciatica/dp/B0BK8SQ2X6/ref=cm_cr_arp_d_product_top?ie=UTF8&th=1
 
@@ -890,3 +890,15 @@ Rob
 Reviewed in Canada on July 13, 2021
 Size: MediumVerified Purchase
 I purchased this product a little over a month ago and already the velcro is breaking down. I am having to pull the belt tighter and tighter to try and get to a spot where the velcro will hold. I weigh 154lbs so I sm not overweight I purchased this belt to help with the back pain I experience from the multiple sclerosis I have. I am very disappointed with this product and would not recommend. The quality doesn't last.
+
+### Sticky 3
+
+Go to backpain
+r/backpain
+•
+2y ago
+red_quinn
+
+Lower back pain for weeks and hurts to do the most basic thing
+r/backpain - figure : a diagram of the abdomen.
+About 3 weeks ago i woke up with lower back pain. I dont remember getting hurt or anything like that. Ive attached a picture to point where exactly it hurts, its in the red circle inside the yellow line. It hirts when i try to sit and get up, when i try to go down to pick up something. Laying down on my stomach doesnt hurt and its the only way i can sleep. If i try to move or go on my side it hurts. Nothing seems to make it better. I cant do the most basic things, like cleaning and doing laundry. I havent looked for treatment, ive only look for stretches or exercises to help me get rid of it. But the ones ive come across arent for where my pain area is located.
