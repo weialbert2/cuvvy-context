@@ -2,9 +2,9 @@
 
 _Each section has two parts: **Research notes** (extracted from real reviews) and **My version** (the owner's synthesis)._
 
-## Avatar 1 — The Ailment-Ridden Sufferer
+## Avatar 1: The Back Pain / Sciatica / Lower-Back Sufferer
 
-**Awareness:** Solution aware · managed-chronic severity · functional but compromised
+**Awareness:** Solution aware · medium severity · diagnosed or self-aware · functional but compromised
 
 ### Surface Desire
 
@@ -25,7 +25,7 @@ Common surface ask, in their own words: function. Walk, work, sleep, do daily ta
 
 **My version:**
 
-"I just want to be able to walk through the store, sit at my desk, garden in the afternoon, and sleep through the night without my back stopping me halfway through."
+"I just want to walk through the store, sit at my desk, garden in the afternoon, and sleep through the night without my back stopping me halfway through."
 
 ### Whys (drilling to core)
 
@@ -240,9 +240,9 @@ Overlap notes (hinted):
 
 **My version:**
 
-Only fill if load-bearing. Otherwise leave thin.
 - Men and women, 30–70
-- Has at least one named back diagnosis (herniated disc, sciatica, DDD, lumbar sprain, scoliosis, EDS, fractured vertebra)
+- Has at least one named back diagnosis (herniated disc, sciatica, DDD, lumbar sprain, scoliosis, EDS, fractured vertebra) — or is self-aware of recurring lower-back issues without formal diagnosis
+- Medium severity — recurring, painful, life-disrupting in moments, but not bedridden or surgical-track
 - Still working, still in their hobbies, still functional — managing it with friction
 
 ### Language
@@ -302,16 +302,239 @@ Honest / under-promising phrases they trusted:
 
 **My version:**
 
-Their actual phrasing — useful for ad copy and hooks.
-
 Pain words: suffer · comes back regularly · going out on me · pulled my back · flare up · episode
 
 Hesitation phrases: thinking about getting a brace · is it bad to wear one · should I get one · my doctor mentioned a brace but · keep meaning to try one
 
 Category objections: don't want to depend on it · should fix this without a crutch · worried it'll make my back lazy · will it weaken my muscles
 
-Activity verbs they want back: bend · sit · move · walk · garden · putter · work · sleep · drive · lift · twist
+Activity verbs: bend · sit · move · walk · garden · putter · work · sleep · drive · lift · twist
 
-Their clinical vocabulary: L4-L5 · L1-L2 · T11 · DDD · sciatic nerve · lumbar support · herniated / bulging disc · core strength
+Clinical vocabulary: L4-L5 · L1-L2 · T11 · DDD · sciatic nerve · lumbar support · herniated / bulging disc · core strength
+
+---
+
+## Avatar 2: The Physical Worker
+
+**Awareness:** Solution aware · job-stakes driver · livelihood at risk
+
+### Surface Desire
+
+**My version:**
+
+"I need to get through the workday without my back giving out — finish this job, lift this load, swing this hammer, lift this patient — without pain stopping me halfway through."
+
+### Whys (drilling to core)
+
+**Why? 1**
+  - _My version:_ Why do I want to finish the workday pain-free? Because the work doesn't stop — the next shift, the next load, the next call is coming.
+
+**Why? 2**
+  - _My version:_ Why does that matter? Because if my back goes out I miss days, lose pay, lose hours, fall behind crew.
+
+**Why? 3**
+  - _My version:_ Why does that hurt? Because my work IS my income — my family eats from this, my mortgage is paid from this. There's no plan B.
+
+**Why? 4**
+  - _My version:_ Why does my back risking that scare me? Because I'm a provider and a doer — without my body working, I'm not who I am to my family or to myself.
+
+### Core Desire
+
+**My version:**
+
+To stay the provider — the one whose body holds up so the family, the income, the role doesn't collapse. Not to be the guy on disability. Not to be the one who had to leave the trade.
+
+### Why NOW
+
+**My version:**
+
+- Tweaked it on the job — lifting, twisting, repetitive movement
+- Started a new role with heavier physical demands
+- Took time off and the pain came back faster than expected
+- Coworker recommended a brace ("this saved my back")
+- Big project / busy season coming and can't afford to break down mid-job
+
+### Why NOT before
+
+**My version:**
+
+- "Tough it out" culture — bracing seen as soft or for old guys
+- Worried it'll get in the way / restrict movement on the job
+- Doesn't want to look injured at work — disability/insurance complications
+- Has tried lifting belts before that were uncomfortable or didn't help
+- Sweats through them, slips down under work pants, rolls up
+- Self-image: "I can handle it"
+
+### Demographics
+
+**My version:**
+
+- Men and women, 25–60
+- Trades, construction, nursing, warehouse, delivery, landscaping, mechanic, healthcare, manufacturing
+- Hourly or shift-based pay common — back-out = lost income
+- May or may not have a named diagnosis; injury often acute, not chronic
+
+### Language
+
+**My version:**
+
+Pain words: tweaked it · threw out my back · came up sore · stiff after shift · feeling it the next day · hard labour
+
+Job framing: on the job · physical work · heavy work · long days · busy season · can't afford to be off
+
+Win-state phrases: got me through · saved my back · finished the job · still standing · holds up
+
+Objection phrases: rolls up · slips down · sweats through · gets in the way · cheap belt
+
+Activity verbs: lift · twist · bend · carry · haul · stand all day · swing · pull · push
+
+---
+
+## Avatar 3: The Gift Buyer
+
+**Awareness:** Buying for a loved one · helper-mode · parallel funnel
+
+### Surface Desire
+
+**My version:**
+
+"I want to get my mom / husband / partner something that actually helps with their back pain — not another gimmicky gadget that ends up in a drawer."
+
+### Whys (drilling to core)
+
+**Why? 1**
+  - _My version:_ Why do I want to find something that helps them? Because they keep complaining about their back and I hate watching them suffer.
+
+**Why? 2**
+  - _My version:_ Why does that matter? Because they don't help themselves enough — they put it off, tough it out, won't go to the doctor.
+
+**Why? 3**
+  - _My version:_ Why is that hard for me? Because I love them and I want them to be okay — and I want to feel like I'm doing something about it.
+
+**Why? 4**
+  - _My version:_ Why does that matter so much? Because being able to take care of the people I love is part of who I am.
+
+### Core Desire
+
+**My version:**
+
+To be the one who shows up — the partner, child, friend who finds the thing that actually works. Not to feel helpless watching someone they love suffer.
+
+### Why NOW
+
+**My version:**
+
+- Birthday / Christmas / anniversary / Mother's or Father's Day approaching
+- Loved one had a recent flare or "bad week"
+- Partner mentioned they're tired of the pain
+- Family member started a new physical job
+- Saw the brace recommended by a friend or in a review
+
+### Why NOT before
+
+**My version:**
+
+- Worried it'll be the wrong size — afraid to guess
+- Didn't want to seem like they were calling attention to the loved one's pain
+- Past gift gadgets failed and ended up unused — gun-shy
+- Didn't know which brace was the "right" one
+- Worried the loved one wouldn't actually use it
+
+### Demographics
+
+**My version:**
+
+- Adult children buying for parents (often 30s–50s buying for 60+)
+- Spouses/partners buying for each other (often 30s–60s)
+- Skews female slightly — women shop on behalf of partners more often
+- The gift recipient passes the same product gate as Avatar 1, 2, or 4
+
+### Language
+
+**My version:**
+
+Buying-for: got this for my mom · bought for my boyfriend · for my wife · for my dad · for my friend
+
+Reassurance: she said it works · he loves it · he's been using it daily · finally helped
+
+Concern phrases: watching them in pain · tired of hearing them complain · won't go to the doctor
+
+Decision phrases: hopefully helps · worth a try · best gift I've given · finally something that worked
+
+---
+
+## Avatar 4: The Drifting Desk Worker
+
+**Awareness:** Brace-unaware · drift-prevention driver · mild & sedentary
+
+### Surface Desire
+
+**My version:**
+
+"I just want to get through the workday without my back killing me — and stop feeling like a 50-year-old when I'm 32."
+
+### Whys (drilling to core)
+
+**Why? 1**
+  - _My version:_ Why do I want my back to stop bothering me? Because it's wearing me down — every workday ends with this nagging pain.
+
+**Why? 2**
+  - _My version:_ Why does that matter? Because I'm noticing it's getting worse, not better. I'm slouching, I'm stiff, I feel old.
+
+**Why? 3**
+  - _My version:_ Why does that scare me? Because I see where this leads — my dad / my coworker / older me — and I don't want to become that.
+
+**Why? 4**
+  - _My version:_ Why does that matter? Because I want to stay capable — active, sharp, able to do the things I enjoy. I don't want my body to be the limit.
+
+### Core Desire
+
+**My version:**
+
+To stay loose, capable, and young. Not to slowly slide into "that person" — the stiff one, the bent one, the one who can't keep up. Drift prevention.
+
+### Why NOW
+
+**My version:**
+
+- WFH or new desk job made stiffness suddenly noticeable
+- Started a new fitness regimen and felt the back limitation
+- Hit a milestone age (30, 35, 40) and felt the body change
+- Watched a parent or coworker decline — wants to interrupt the pattern
+- A bad week — slept wrong, sat too long, can't shake the stiffness
+
+### Why NOT before
+
+**My version:**
+
+- Doesn't think of bracing as a category that applies to them — "braces are for old or injured people"
+- Believes they should fix it with exercise, stretching, or a better chair
+- Pain isn't "real enough" yet — feels exaggerated to buy a brace
+- Spent on a standing desk, ergonomic chair, lumbar pillow first
+- Worried about looking weird or "old" wearing a brace at work
+
+### Demographics
+
+**My version:**
+
+- Men and women, 25–50
+- Knowledge workers — desk job, WFH, office, sedentary
+- No diagnosis — just chronic discomfort from posture / inactivity
+- Active-recovery worldview ("I should fix this myself")
+- Largest TAM of all four avatars but the hardest to convert
+
+### Language
+
+**My version:**
+
+Pain words: stiff · tight · achy · tense · sore · nagging · killing me · ruined my back
+
+Age-shock: I'm only 32 · feeling 50 · too young for this · my dad's back · WFH back
+
+Self-care framing: need to stretch more · should do core · need to fix my posture · sitting all day
+
+Hesitation: not bad enough for · don't want to depend on · isn't that for older people
+
+Activity verbs: sit · stand · stretch · move · walk · slouch · hunch
 
 ---
