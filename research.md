@@ -1,6 +1,6 @@
 # Research
 
-_55 stickies in 4 frames._
+_56 stickies in 4 frames._
 
 ## FREETOO Reviews — Amazon (B0BK8SQ2X6, 5★) https://www.amazon.ca/FREETOO-Support-Anti-skid-Herniated-Sciatica/dp/B0BK8SQ2X6/ref=cm_cr_arp_d_product_top?ie=UTF8&th=1
 
@@ -951,6 +951,14 @@ kevin
 Reviewed in Canada on October 9, 2025
 Colour Name: BlackSize: Small (Waist: 27.6"-33.5")Verified Purchase
 Bought for my wife and she says it has helped her back aches and is also quite comfortable to wear.
+
+### Sticky 11
+
+G ma
+5.0 out of 5 stars Instant pain relief
+Reviewed in Canada on February 13, 2025
+Colour Name: BlackSize: Medium (Waist: 33.5"-39.4")Verified Purchase
+This back brace has made such a difference when my sciatica rears its ugly head ! In seconds it make the pain more bearable , and movement easier…. Really corrects my posture and tightens my core … worth every penny , and more
 
 ---
 
