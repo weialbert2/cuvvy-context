@@ -1,6 +1,6 @@
 # Research
 
-_64 stickies in 4 frames._
+_65 stickies in 5 frames._
 
 ## FREETOO Reviews — Amazon (B0BK8SQ2X6, 5★) https://www.amazon.ca/FREETOO-Support-Anti-skid-Herniated-Sciatica/dp/B0BK8SQ2X6/ref=cm_cr_arp_d_product_top?ie=UTF8&th=1
 
@@ -1055,6 +1055,109 @@ It fits easily under clothing, making it discreet for everyday use. Whether you�
 
 ---
 
+## https://www.reddit.com/r/Sciatica/comments/1aexlor/guys_i_fixed_my_sciatica/
+
+### Sticky 1
+
+Back
+
+Go to Sciatica
+r/Sciatica
+•
+2y ago
+Antique_Ad1235
+
+Guys, I fixed my sciatica
+So I had been dealing with sciatica pain from a herniated disc that I injured while lifting. I had the pain for over a year and it would be mild some days and unbearable on others and I couldn’t figure out why. I had been googling recently on how to fix and found nothing of value besides gimmick pills to ease the pain. Then out of nowhere I start getting sciatica pain relief ads on instagram. I disregarded most of them, but one ad showed a doctor trying to sell his “plan for relief” but in the background it showed video of a person pushing the top of their hips forward to create the “natural” bend in their spine above the hip. In this moment I realized that my hips were almost always in a relaxed position (top of pelvis leaning back, bottom of pelvis more forward). That day I started actively pushing the top of my pelvis forward and pushing my butt out. This felt very uncomfortable, as it felt like my spine was mildly compressing what I assumed was my herniated disc (not unbearable pain) and the lower back/hip muscles I was using to push my top of hips out became very tired and sore (I assume from not being used) but I kept at it. I started to put a small pillow under my lower back before going to sleep, which wasn’t the most comfortable but I’d leave it there for about an hour before throwing it off my bed to sleep in a more relaxed position. I also purchased a lumbar support pillow for my office chair at work to force the top of my hips forward. After about FIVE days of forcing this position, the sciatica pain started to get milder and milder, but the seventh day it was almost completely gone. I’m on day 14 now and I not longer have any nerve pain and I am absolutely pumped. I thought I was going to have to deal with this for the rest of my life. Just wanted to share my success to give you all some hope.
+
+My apologies that this is so long winded, and please excuse typos as I am doing this on my phone.
+
+### Sticky 2
+
+Downvote
+
+Reply
+
+Award
+
+Share
+
+u/haywardstockton avatar
+haywardstockton
+•
+10mo ago
+Alright - I’m posting everything I know / have done for my sciatica which I’ve had for the past 10yrs (due to hunching and sitting weirdly working 60-80hr week in tech).
+
+I have bulging discs at S1 / L5 and have had 2-3 episodes where the pain was blinding and I was unable to really sleep or walk well. Pain was just something I had to accept and live with for months (which is why nerve pain sucks because there’s no meds that totally take away the pain from the root of the problem, and nerves are very slow to grow / heal so recovery takes a long time).
+
+Pain relief:
+
+icing (get an ice pack like this or something to put ice in and then put inside the back brace so it gets super cold)… ice for anywhere from 1-8hrs. It usually doesn’t reach the disc but can help relieve pain and the irritation of surrounding muscles. Pack: https://www.target.com/p/hot-cold-gel-bead-back-wrap-with-strap-up-38-up-8482/-/A-51925778
+
+gabbapentin: nerve agent that will take the edge off. Usually 1-2 300mg pills every four hrs. Can cause drowsiness. Again this just helps take the edge off, never had it fully relieve pain.
+
+floating in a hot tub / bath for a few hrs. Ideally morning and night. The lack of gravity and the soothing heat help muscles and take gravity pressure off my discs.
+
+Long term fixes:
+
+Be aware of your body posture. Your hip tilt, how hard / easy it is to do hip bridges and hold for 3 seconds at the top, how often you sit vs stand vs walk. How often you are in water (so you are more weightless and relieve pressure on the spine). Do you have strong quads, glutes and do you use your knees / core vs bending at the waist / twisting (no quick twisting ever!!).
+
+I have come to accept I just have to walk 2-3, 10min walks throughout my day. And on a long flight - also must walk (no more window seats and just hunkering down).
+
+2) Core exercises for strength: My first bout with all this, I saw my reg doctors and all they did was treat pain then finally sent me to a PT 2mo in which was required for getting an MRI.
+
+PT was FINALLY the first time I ever heard how tight hips, ankles, wear glutes, tight hamstrings, psoas muscles could effect hip position, posture, and therefore effect my back discs. And they diagnosed my specific discs bulge given the numbness and tightness in my right calf, and lack of motor nerve strength
+
+It was still baby steps with bird dog, hip bridges, one legged hip bridges for 2 weeks. The ultrasound massage for my back was also helpful (my take away slow and gentle is the way to recover.. but be serious about consistency).
+
+3) Shoes need to be right. Your feet and what they absorb/ how the walk are directly related to back condition. If you are in a flare - ya prob need inserts and something like Hokas with soft rocker soles and put in supportive soles. If you walk on concrete vs grass etc.
+
+If you are not in a flare but you are gonna do risky activity like stand around at a fair, Disneyland, walk a bunch - ya best put these shoes on. Sorry they don’t go with ya outfit every time but a fucked back also ain’t gonna look too good for elevating your rizz either.
+
+Find a place that has a way to evaluate your gate / walk and even do treadmill / pressure tests - will help tailor shoes and insoles to you. You can go see an orthopedic dr for professional insoles, but 90% of people just need better shoes and insole.
+
+Place in SF I went: On The Run … mostly fair prices and really know supportive footwear.
+
+4) Make sure your bed is the right mix of supportive - ya spend 5-8hrs in that thing and super important to be intentional. Mattress Firm and other spots have discounts for pricier models if you need.
+
+**bed: I have tempur- pro breeze 12” medium hybrid mattress and I have had it 2x and I think it’s been exceptional for my back but also comfort. Well worth the price.
+
+Other helpful tools or accessories when you are in a flare:
+
+This desk on Etsy: https://www.etsy.com/listing/1705510103/?ref=share_ios_native_control
+
+It saved my gd life. I could barely walk, but I needed to keep my job/ honestly when you’re in pain all day everyday you want distractions — and it is the only one I found that actually tilts and holds the laptop with the elastic band and shelf to allow me to be fully horizontal. Bless this vendor because they are doing god’s work making this product.
+
+A back brace: https://a.co/d/gstbsRQ Admit that you have a bad back. If you have a long flight, car ride, crazy hike - you can’t be mindful and holding your core the whole time. This will help protect your back. I wear my under my clothes to work sometimes with my ice packs and it has helped so much.
+
+A cautionary tale about opioids and back pain: My first doctor gave me pain meds a bunch… and it does help but only because you are high… not because it addresses the sciatic nerve irritation. I became reliable on oxycodone to sleep… and it made me super groggy and be more ok to taking them during the days which was not great… being high at work is just never the answer.
+
+Do the PT body work, get some accessories in your life, and reach out / voice to your friends and family if you are struggling with pain, a way forward etc — this is a semi undercover issue that so many struggle with.
+
+——-
+
+Ok - this was long but I hope helpful. Best of luck to everyone if you are coming here in a time of pain, suffering, frustration - it can and usually does go away. There’s lots of avenues - you just likely need a little patience and gentle rest, consistent PT. Much love to the community for all the help I’ve gotten over the years.
+
+
+
+Upvote
+10
+
+Downvote
+
+Reply
+
+Award
+
+Share
+
+Sharmonica
+•
+9mo ago
+That desk on Etsy is 50% off until the end of August 2025.
+
+---
+
 ## Loose stickies (not in any frame)
 
 ### Sticky 1
@@ -1122,18 +1225,3 @@ Deeandrm
 •
 2mo ago
 Whatever u do...NEVER GO TO A CHIROPRACTOR. I got swept up in the youtube videos of the cracking sound and almost went to a coworkers brother ( who was a chiro) to have it done. Luckily i didnt but I have a friend who went to a chiropractor and basically ended up with chronic pain and when she was going to sue years later she found out another client had killed him.... so yeah please dont go to a chiropractor for this.
-
-### Sticky 6
-
-Back
-
-Go to Sciatica
-r/Sciatica
-•
-2y ago
-Antique_Ad1235
-
-Guys, I fixed my sciatica
-So I had been dealing with sciatica pain from a herniated disc that I injured while lifting. I had the pain for over a year and it would be mild some days and unbearable on others and I couldn’t figure out why. I had been googling recently on how to fix and found nothing of value besides gimmick pills to ease the pain. Then out of nowhere I start getting sciatica pain relief ads on instagram. I disregarded most of them, but one ad showed a doctor trying to sell his “plan for relief” but in the background it showed video of a person pushing the top of their hips forward to create the “natural” bend in their spine above the hip. In this moment I realized that my hips were almost always in a relaxed position (top of pelvis leaning back, bottom of pelvis more forward). That day I started actively pushing the top of my pelvis forward and pushing my butt out. This felt very uncomfortable, as it felt like my spine was mildly compressing what I assumed was my herniated disc (not unbearable pain) and the lower back/hip muscles I was using to push my top of hips out became very tired and sore (I assume from not being used) but I kept at it. I started to put a small pillow under my lower back before going to sleep, which wasn’t the most comfortable but I’d leave it there for about an hour before throwing it off my bed to sleep in a more relaxed position. I also purchased a lumbar support pillow for my office chair at work to force the top of my hips forward. After about FIVE days of forcing this position, the sciatica pain started to get milder and milder, but the seventh day it was almost completely gone. I’m on day 14 now and I not longer have any nerve pain and I am absolutely pumped. I thought I was going to have to deal with this for the rest of my life. Just wanted to share my success to give you all some hope.
-
-My apologies that this is so long winded, and please excuse typos as I am doing this on my phone.
