@@ -1,6 +1,6 @@
 # Research
 
-_62 stickies in 4 frames._
+_63 stickies in 4 frames._
 
 ## FREETOO Reviews — Amazon (B0BK8SQ2X6, 5★) https://www.amazon.ca/FREETOO-Support-Anti-skid-Herniated-Sciatica/dp/B0BK8SQ2X6/ref=cm_cr_arp_d_product_top?ie=UTF8&th=1
 
@@ -1040,6 +1040,18 @@ BuySavvyCanada
 Reviewed in Canada on June 29, 2025
 Amazon Vine Customer Review of Free Product( What's this? )
 I have been having intense lower back pain, so it was recommended that I get a back brace. I ended up having a pinched nerve and this helped to support back where I needed it. This brace is great because you feel supported without being uncomfortable. I walked around the house, did chores and even went out for walks with it on without have to adjust it all the time. I like how adjustable it is to fit around your body. I wanted it to have a tighter fit and I was able to get that with this brace. I ended up bringing it to my chiropractor and they were happy with my choice and said that is supported my back well due to the supportive lumber pad in it. the chiropractor did say it would be more ideal to have the lumbar support throughout the whole lower back but was still pleased with the support it did give.
+
+### Sticky 18
+
+Amazon Customer
+5.0 out of 5 stars Ease up on the back pain
+Reviewed in Canada on May 10, 2025
+Amazon Vine Customer Review of Free Product( What's this? )
+This back brace is a great option for providing solid support to your lower back. It has a lightweight design and is made from durable, breathable materials. The adjustable straps allow for a customized fit, giving you the flexibility to wear it as tight or loose as needed.
+
+The brace features 7 stays for added stability, which helps prevent further injury while offering relief from back pain. It also has a lumbar pad for extra comfort and support, making it especially useful for those with conditions like scoliosis.
+
+It fits easily under clothing, making it discreet for everyday use. Whether you’re sitting for long periods, lifting, or doing physical activities, this back brace provides reliable support that helps reduce discomfort and strain
 
 ---
 
