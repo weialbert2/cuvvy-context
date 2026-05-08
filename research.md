@@ -1,6 +1,6 @@
 # Research
 
-_65 stickies in 5 frames._
+_65 text notes · 0 images · 5 frames._
 
 ## FREETOO Reviews — Amazon (B0BK8SQ2X6, 5★) https://www.amazon.ca/FREETOO-Support-Anti-skid-Herniated-Sciatica/dp/B0BK8SQ2X6/ref=cm_cr_arp_d_product_top?ie=UTF8&th=1
 
@@ -1158,7 +1158,7 @@ That desk on Etsy is 50% off until the end of August 2025.
 
 ---
 
-## Loose stickies (not in any frame)
+## Loose text notes (not in any frame)
 
 ### Sticky 1
 
