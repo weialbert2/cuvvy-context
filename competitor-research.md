@@ -1,6 +1,6 @@
 # Research
 
-_1 text notes · 49 images (49 mirrored) · 9 frames._
+_1 text notes · 51 images (51 mirrored) · 10 frames._
 
 ## neocushion https://neocushion.com/en-ca/products/neocushion
 
@@ -338,5 +338,63 @@ https://neocushion.com/en-ca/products/neocushion
 ![Screenshot 2 tile 4/6](images/19e01823334cdou-4.jpg)
 ![Screenshot 2 tile 5/6](images/19e01823334cdou-5.jpg)
 ![Screenshot 2 tile 6/6](images/19e01823334cdou-6.jpg)
+
+---
+
+## Dainely Belt 2.0 — https://dainelylab.com/products/dainely-belt
+
+### Screenshot 1 — 9 tiles (top → bottom)
+
+![Screenshot 1 tile 1/9](images/19e06b12cf5um2o-dainelylab-com-products-dainely-belt-desktop-1.jpg)
+![Screenshot 1 tile 2/9](images/19e06b12cf5um2o-dainelylab-com-products-dainely-belt-desktop-2.jpg)
+![Screenshot 1 tile 3/9](images/19e06b12cf5um2o-dainelylab-com-products-dainely-belt-desktop-3.jpg)
+![Screenshot 1 tile 4/9](images/19e06b12cf5um2o-dainelylab-com-products-dainely-belt-desktop-4.jpg)
+![Screenshot 1 tile 5/9](images/19e06b12cf5um2o-dainelylab-com-products-dainely-belt-desktop-5.jpg)
+![Screenshot 1 tile 6/9](images/19e06b12cf5um2o-dainelylab-com-products-dainely-belt-desktop-6.jpg)
+![Screenshot 1 tile 7/9](images/19e06b12cf5um2o-dainelylab-com-products-dainely-belt-desktop-7.jpg)
+![Screenshot 1 tile 8/9](images/19e06b12cf5um2o-dainelylab-com-products-dainely-belt-desktop-8.jpg)
+![Screenshot 1 tile 9/9](images/19e06b12cf5um2o-dainelylab-com-products-dainely-belt-desktop-9.jpg)
+
+### Screenshot 2 — 39 tiles (top → bottom)
+
+![Screenshot 2 tile 1/39](images/19e06b12cf5um2o-dainelylab-com-products-dainely-belt-mobile-1.jpg)
+![Screenshot 2 tile 2/39](images/19e06b12cf5um2o-dainelylab-com-products-dainely-belt-mobile-2.jpg)
+![Screenshot 2 tile 3/39](images/19e06b12cf5um2o-dainelylab-com-products-dainely-belt-mobile-3.jpg)
+![Screenshot 2 tile 4/39](images/19e06b12cf5um2o-dainelylab-com-products-dainely-belt-mobile-4.jpg)
+![Screenshot 2 tile 5/39](images/19e06b12cf5um2o-dainelylab-com-products-dainely-belt-mobile-5.jpg)
+![Screenshot 2 tile 6/39](images/19e06b12cf5um2o-dainelylab-com-products-dainely-belt-mobile-6.jpg)
+![Screenshot 2 tile 7/39](images/19e06b12cf5um2o-dainelylab-com-products-dainely-belt-mobile-7.jpg)
+![Screenshot 2 tile 8/39](images/19e06b12cf5um2o-dainelylab-com-products-dainely-belt-mobile-8.jpg)
+![Screenshot 2 tile 9/39](images/19e06b12cf5um2o-dainelylab-com-products-dainely-belt-mobile-9.jpg)
+![Screenshot 2 tile 10/39](images/19e06b12cf5um2o-dainelylab-com-products-dainely-belt-mobile-10.jpg)
+![Screenshot 2 tile 11/39](images/19e06b12cf5um2o-dainelylab-com-products-dainely-belt-mobile-11.jpg)
+![Screenshot 2 tile 12/39](images/19e06b12cf5um2o-dainelylab-com-products-dainely-belt-mobile-12.jpg)
+![Screenshot 2 tile 13/39](images/19e06b12cf5um2o-dainelylab-com-products-dainely-belt-mobile-13.jpg)
+![Screenshot 2 tile 14/39](images/19e06b12cf5um2o-dainelylab-com-products-dainely-belt-mobile-14.jpg)
+![Screenshot 2 tile 15/39](images/19e06b12cf5um2o-dainelylab-com-products-dainely-belt-mobile-15.jpg)
+![Screenshot 2 tile 16/39](images/19e06b12cf5um2o-dainelylab-com-products-dainely-belt-mobile-16.jpg)
+![Screenshot 2 tile 17/39](images/19e06b12cf5um2o-dainelylab-com-products-dainely-belt-mobile-17.jpg)
+![Screenshot 2 tile 18/39](images/19e06b12cf5um2o-dainelylab-com-products-dainely-belt-mobile-18.jpg)
+![Screenshot 2 tile 19/39](images/19e06b12cf5um2o-dainelylab-com-products-dainely-belt-mobile-19.jpg)
+![Screenshot 2 tile 20/39](images/19e06b12cf5um2o-dainelylab-com-products-dainely-belt-mobile-20.jpg)
+![Screenshot 2 tile 21/39](images/19e06b12cf5um2o-dainelylab-com-products-dainely-belt-mobile-21.jpg)
+![Screenshot 2 tile 22/39](images/19e06b12cf5um2o-dainelylab-com-products-dainely-belt-mobile-22.jpg)
+![Screenshot 2 tile 23/39](images/19e06b12cf5um2o-dainelylab-com-products-dainely-belt-mobile-23.jpg)
+![Screenshot 2 tile 24/39](images/19e06b12cf5um2o-dainelylab-com-products-dainely-belt-mobile-24.jpg)
+![Screenshot 2 tile 25/39](images/19e06b12cf5um2o-dainelylab-com-products-dainely-belt-mobile-25.jpg)
+![Screenshot 2 tile 26/39](images/19e06b12cf5um2o-dainelylab-com-products-dainely-belt-mobile-26.jpg)
+![Screenshot 2 tile 27/39](images/19e06b12cf5um2o-dainelylab-com-products-dainely-belt-mobile-27.jpg)
+![Screenshot 2 tile 28/39](images/19e06b12cf5um2o-dainelylab-com-products-dainely-belt-mobile-28.jpg)
+![Screenshot 2 tile 29/39](images/19e06b12cf5um2o-dainelylab-com-products-dainely-belt-mobile-29.jpg)
+![Screenshot 2 tile 30/39](images/19e06b12cf5um2o-dainelylab-com-products-dainely-belt-mobile-30.jpg)
+![Screenshot 2 tile 31/39](images/19e06b12cf5um2o-dainelylab-com-products-dainely-belt-mobile-31.jpg)
+![Screenshot 2 tile 32/39](images/19e06b12cf5um2o-dainelylab-com-products-dainely-belt-mobile-32.jpg)
+![Screenshot 2 tile 33/39](images/19e06b12cf5um2o-dainelylab-com-products-dainely-belt-mobile-33.jpg)
+![Screenshot 2 tile 34/39](images/19e06b12cf5um2o-dainelylab-com-products-dainely-belt-mobile-34.jpg)
+![Screenshot 2 tile 35/39](images/19e06b12cf5um2o-dainelylab-com-products-dainely-belt-mobile-35.jpg)
+![Screenshot 2 tile 36/39](images/19e06b12cf5um2o-dainelylab-com-products-dainely-belt-mobile-36.jpg)
+![Screenshot 2 tile 37/39](images/19e06b12cf5um2o-dainelylab-com-products-dainely-belt-mobile-37.jpg)
+![Screenshot 2 tile 38/39](images/19e06b12cf5um2o-dainelylab-com-products-dainely-belt-mobile-38.jpg)
+![Screenshot 2 tile 39/39](images/19e06b12cf5um2o-dainelylab-com-products-dainely-belt-mobile-39.jpg)
 
 ---
