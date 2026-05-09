@@ -4,14 +4,12 @@ Plain-text URL listings of all mirrored screenshot tiles, grouped by canvas fram
 
 **For Claude.ai users:** when you fetch this file, all image URLs inside become "fetched-result-derived" — your `web_fetch` tool will allow fetching each one. Pick whichever brand/section you need and fetch only those URLs (avoid fetching all 496 — context-expensive).
 
-_Generated: 2026-05-09T07:56:18.645076+00:00 · 522 competitor tiles · 0 avatar canvas tiles_
+_Generated: 2026-05-09T07:57:13.384990+00:00 · 493 competitor tiles · 0 avatar canvas tiles_
 
 # Competitor canvas
 
 | Frame | Sections | Total tiles |
 | --- | --- | --- |
-| Amazon — "back belt" SERP top 3 (2026-05-09) | screenshot (29) | **29** |
-| Back belt Products | metrics card (1) | **1** |
 | BackPainHelp — backpainhelp.com (4,716 mo / 0 ads) | metrics card (1), homepage (desktop) (5) | **6** |
 | Coussin Ergo — https://coussin-ergo.com | homepage (desktop) (4), homepage (mobile) (10) | **14** |
 | Dainely — dainelylab.com (15,210 mo / 0 ads) | metrics card (1), homepage (desktop) (4), product page (desktop) (9), product page (mobile) (26) | **40** |
@@ -27,7 +25,7 @@ _Generated: 2026-05-09T07:56:18.645076+00:00 · 522 competitor tiles · 0 avatar
 | Neurogena https://www.neurogena.us/productse | metrics card (1), screenshot (58) | **59** |
 | Nuviol — nuviol.com (15,116 mo / 30 ads) | metrics card (1), homepage (desktop) (3), product page (desktop) (1), product page (mobile) (3) | **8** |
 | Ortho Cushion — https://theorthocushion.com | homepage (desktop) (3), homepage (mobile) (7) | **10** |
-| RockerMama — https://rockermama.com | homepage (desktop) (4), homepage (mobile) (8) | **12** |
+| RockerMama — https://rockermama.com | metrics card (1), homepage (desktop) (4), homepage (mobile) (8) | **13** |
 | Taquey — taquey.com (4,636 mo / 16 ads) | metrics card (1), homepage (desktop) (5), product page (desktop) (7) | **13** |
 | WellHealthis — wellhealthis.com (450 mo / 0 ads) | metrics card (1), homepage (desktop) (8), homepage (mobile) (9) | **18** |
 | https://livena-shop.com/products/livena-personalized-lumbar-support-cushion-for-pain-relief?fbclid=IwZXh0bgNhZW0CMTAAYnJpZBExNTdNVm51MThaOXdEV2VFS3NydGMGYXBwX2lkDzU0MTYzOTQ5Mzg4OTAyNQABHtORflzvhwiUGqu6K-MaPQU58SQl9zYzhCbnygu--2UzcET8abi25ONJkgZ9_aem_eTyV9tDoZsjLz6Nc149Ctw | screenshot (4) | **4** |
@@ -38,64 +36,6 @@ _Generated: 2026-05-09T07:56:18.645076+00:00 · 522 competitor tiles · 0 avatar
 | https://tryalum.com/products/honeycomb-gel-seat-cushion | screenshot (10) | **10** |
 | https://volosso.com/products/coolgel-seat-cushion-p2?_abr=1 | screenshot (6) | **6** |
 | neocushion https://neocushion.com/en-ca/products/neocushion | screenshot (11) | **11** |
-
-## Amazon — "back belt" SERP top 3 (2026-05-09)
-
-### screenshot — 10 tile(s), top-to-bottom
-
-```
-https://raw.githubusercontent.com/weialbert2/cuvvy-context/main/images/19e0bb9ce54cmbt-amazon-B07WZZFL9T-desktop-1.jpg
-https://raw.githubusercontent.com/weialbert2/cuvvy-context/main/images/19e0bb9ce54cmbt-amazon-B07WZZFL9T-desktop-2.jpg
-https://raw.githubusercontent.com/weialbert2/cuvvy-context/main/images/19e0bb9ce54cmbt-amazon-B07WZZFL9T-desktop-3.jpg
-https://raw.githubusercontent.com/weialbert2/cuvvy-context/main/images/19e0bb9ce54cmbt-amazon-B07WZZFL9T-desktop-4.jpg
-https://raw.githubusercontent.com/weialbert2/cuvvy-context/main/images/19e0bb9ce54cmbt-amazon-B07WZZFL9T-desktop-5.jpg
-https://raw.githubusercontent.com/weialbert2/cuvvy-context/main/images/19e0bb9ce54cmbt-amazon-B07WZZFL9T-desktop-6.jpg
-https://raw.githubusercontent.com/weialbert2/cuvvy-context/main/images/19e0bb9ce54cmbt-amazon-B07WZZFL9T-desktop-7.jpg
-https://raw.githubusercontent.com/weialbert2/cuvvy-context/main/images/19e0bb9ce54cmbt-amazon-B07WZZFL9T-desktop-8.jpg
-https://raw.githubusercontent.com/weialbert2/cuvvy-context/main/images/19e0bb9ce54cmbt-amazon-B07WZZFL9T-desktop-9.jpg
-https://raw.githubusercontent.com/weialbert2/cuvvy-context/main/images/19e0bb9ce54cmbt-amazon-B07WZZFL9T-desktop-10.jpg
-```
-
-### screenshot — 9 tile(s), top-to-bottom
-
-```
-https://raw.githubusercontent.com/weialbert2/cuvvy-context/main/images/19e0bba19cbm96c-amazon-B0DZH985D5-desktop-1.jpg
-https://raw.githubusercontent.com/weialbert2/cuvvy-context/main/images/19e0bba19cbm96c-amazon-B0DZH985D5-desktop-2.jpg
-https://raw.githubusercontent.com/weialbert2/cuvvy-context/main/images/19e0bba19cbm96c-amazon-B0DZH985D5-desktop-3.jpg
-https://raw.githubusercontent.com/weialbert2/cuvvy-context/main/images/19e0bba19cbm96c-amazon-B0DZH985D5-desktop-4.jpg
-https://raw.githubusercontent.com/weialbert2/cuvvy-context/main/images/19e0bba19cbm96c-amazon-B0DZH985D5-desktop-5.jpg
-https://raw.githubusercontent.com/weialbert2/cuvvy-context/main/images/19e0bba19cbm96c-amazon-B0DZH985D5-desktop-6.jpg
-https://raw.githubusercontent.com/weialbert2/cuvvy-context/main/images/19e0bba19cbm96c-amazon-B0DZH985D5-desktop-7.jpg
-https://raw.githubusercontent.com/weialbert2/cuvvy-context/main/images/19e0bba19cbm96c-amazon-B0DZH985D5-desktop-8.jpg
-https://raw.githubusercontent.com/weialbert2/cuvvy-context/main/images/19e0bba19cbm96c-amazon-B0DZH985D5-desktop-9.jpg
-```
-
-### screenshot — 10 tile(s), top-to-bottom
-
-```
-https://raw.githubusercontent.com/weialbert2/cuvvy-context/main/images/19e0bbaa3af2kdr-amazon-B00267SFKC-desktop-1.jpg
-https://raw.githubusercontent.com/weialbert2/cuvvy-context/main/images/19e0bbaa3af2kdr-amazon-B00267SFKC-desktop-2.jpg
-https://raw.githubusercontent.com/weialbert2/cuvvy-context/main/images/19e0bbaa3af2kdr-amazon-B00267SFKC-desktop-3.jpg
-https://raw.githubusercontent.com/weialbert2/cuvvy-context/main/images/19e0bbaa3af2kdr-amazon-B00267SFKC-desktop-4.jpg
-https://raw.githubusercontent.com/weialbert2/cuvvy-context/main/images/19e0bbaa3af2kdr-amazon-B00267SFKC-desktop-5.jpg
-https://raw.githubusercontent.com/weialbert2/cuvvy-context/main/images/19e0bbaa3af2kdr-amazon-B00267SFKC-desktop-6.jpg
-https://raw.githubusercontent.com/weialbert2/cuvvy-context/main/images/19e0bbaa3af2kdr-amazon-B00267SFKC-desktop-7.jpg
-https://raw.githubusercontent.com/weialbert2/cuvvy-context/main/images/19e0bbaa3af2kdr-amazon-B00267SFKC-desktop-8.jpg
-https://raw.githubusercontent.com/weialbert2/cuvvy-context/main/images/19e0bbaa3af2kdr-amazon-B00267SFKC-desktop-9.jpg
-https://raw.githubusercontent.com/weialbert2/cuvvy-context/main/images/19e0bbaa3af2kdr-amazon-B00267SFKC-desktop-10.jpg
-```
-
----
-
-## Back belt Products
-
-### metrics card — 1 tile(s)
-
-```
-https://raw.githubusercontent.com/weialbert2/cuvvy-context/main/images/metrics-parent-rockermama-com.jpg
-```
-
----
 
 ## BackPainHelp — backpainhelp.com (4,716 mo / 0 ads)
 
@@ -942,6 +882,12 @@ https://raw.githubusercontent.com/weialbert2/cuvvy-context/main/images/19e0a1281
 ---
 
 ## RockerMama — https://rockermama.com
+
+### metrics card — 1 tile(s)
+
+```
+https://raw.githubusercontent.com/weialbert2/cuvvy-context/main/images/metrics-parent-rockermama-com.jpg
+```
 
 ### homepage (desktop) — 4 tile(s), top-to-bottom
 

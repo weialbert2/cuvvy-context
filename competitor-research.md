@@ -1,10 +1,8 @@
 # Research
 
-_4 text notes · 115 images (115 mirrored) · 28 frames (hierarchical)._
+_1 text notes · 112 images (112 mirrored) · 27 frames (hierarchical)._
 
 ## Back belt Products
-
-![Screenshot 1](images/metrics-parent-rockermama-com.jpg)
 
 ### Neurogena https://www.neurogena.us/productse
 
@@ -320,6 +318,8 @@ Screenshot 2 — 8 tiles (top → bottom):
 ![2.7](images/19e0a12f351uovx-rockermama-com-home-mobile-7.jpg)
 ![2.8](images/19e0a12f351uovx-rockermama-com-home-mobile-8.jpg)
 
+![Screenshot 3](images/metrics-parent-rockermama-com.jpg)
+
 
 ### https://livena-shop.com/products/livena-personalized-lumbar-support-cushion-for-pain-relief?fbclid=IwZXh0bgNhZW0CMTAAYnJpZBExNTdNVm51MThaOXdEV2VFS3NydGMGYXBwX2lkDzU0MTYzOTQ5Mzg4OTAyNQABHtORflzvhwiUGqu6K-MaPQU58SQl9zYzhCbnygu--2UzcET8abi25ONJkgZ9_aem_eTyV9tDoZsjLz6Nc149Ctw
 
@@ -560,53 +560,6 @@ Screenshot 5 — 10 tiles (top → bottom):
 ![5.9](images/19e0a51ee29qfeo-merryback-com-products-merryback-mobile-9.jpg)
 ![5.10](images/19e0a51ee29qfeo-merryback-com-products-merryback-mobile-10.jpg)
 
-
-
-## Amazon — "back belt" SERP top 3 (2026-05-09)
-
-**Sticky 1 [#FFEB3B]:** FEATOL Back Brace Support Belt-Lumbar Support Back Brace for Back Pain, Sciatica, Scoliosis, Herniated Disc Adjustable Support Straps-Lower Back Brace with Removable Lumbar Pad for Men & Women
-https://www.amazon.com/dp/B07WZZFL9T
-
-**Sticky 2 [#FFEB3B]:** FEATOL Lower Back Brace with 5 Reinforced Stays for Women and Men, Adjustable Snug-Fit Lumbar Support Belt for Work, Size L, Waist 34.3-38inches
-https://www.amazon.com/dp/B0DZH985D5
-
-**Sticky 3 [#FFEB3B]:** MUELLER Sports Medicine Lumbar Back Brace with Removable Pad, Ideal for Upper and Lower Back Pain, Relief & Support for Men and Women, Strains, Sciatica, Scoliosis
-https://www.amazon.com/dp/B00267SFKC
-
-Screenshot 1 — 10 tiles (top → bottom):
-![1.1](images/19e0bb9ce54cmbt-amazon-B07WZZFL9T-desktop-1.jpg)
-![1.2](images/19e0bb9ce54cmbt-amazon-B07WZZFL9T-desktop-2.jpg)
-![1.3](images/19e0bb9ce54cmbt-amazon-B07WZZFL9T-desktop-3.jpg)
-![1.4](images/19e0bb9ce54cmbt-amazon-B07WZZFL9T-desktop-4.jpg)
-![1.5](images/19e0bb9ce54cmbt-amazon-B07WZZFL9T-desktop-5.jpg)
-![1.6](images/19e0bb9ce54cmbt-amazon-B07WZZFL9T-desktop-6.jpg)
-![1.7](images/19e0bb9ce54cmbt-amazon-B07WZZFL9T-desktop-7.jpg)
-![1.8](images/19e0bb9ce54cmbt-amazon-B07WZZFL9T-desktop-8.jpg)
-![1.9](images/19e0bb9ce54cmbt-amazon-B07WZZFL9T-desktop-9.jpg)
-![1.10](images/19e0bb9ce54cmbt-amazon-B07WZZFL9T-desktop-10.jpg)
-
-Screenshot 2 — 9 tiles (top → bottom):
-![2.1](images/19e0bba19cbm96c-amazon-B0DZH985D5-desktop-1.jpg)
-![2.2](images/19e0bba19cbm96c-amazon-B0DZH985D5-desktop-2.jpg)
-![2.3](images/19e0bba19cbm96c-amazon-B0DZH985D5-desktop-3.jpg)
-![2.4](images/19e0bba19cbm96c-amazon-B0DZH985D5-desktop-4.jpg)
-![2.5](images/19e0bba19cbm96c-amazon-B0DZH985D5-desktop-5.jpg)
-![2.6](images/19e0bba19cbm96c-amazon-B0DZH985D5-desktop-6.jpg)
-![2.7](images/19e0bba19cbm96c-amazon-B0DZH985D5-desktop-7.jpg)
-![2.8](images/19e0bba19cbm96c-amazon-B0DZH985D5-desktop-8.jpg)
-![2.9](images/19e0bba19cbm96c-amazon-B0DZH985D5-desktop-9.jpg)
-
-Screenshot 3 — 10 tiles (top → bottom):
-![3.1](images/19e0bbaa3af2kdr-amazon-B00267SFKC-desktop-1.jpg)
-![3.2](images/19e0bbaa3af2kdr-amazon-B00267SFKC-desktop-2.jpg)
-![3.3](images/19e0bbaa3af2kdr-amazon-B00267SFKC-desktop-3.jpg)
-![3.4](images/19e0bbaa3af2kdr-amazon-B00267SFKC-desktop-4.jpg)
-![3.5](images/19e0bbaa3af2kdr-amazon-B00267SFKC-desktop-5.jpg)
-![3.6](images/19e0bbaa3af2kdr-amazon-B00267SFKC-desktop-6.jpg)
-![3.7](images/19e0bbaa3af2kdr-amazon-B00267SFKC-desktop-7.jpg)
-![3.8](images/19e0bbaa3af2kdr-amazon-B00267SFKC-desktop-8.jpg)
-![3.9](images/19e0bbaa3af2kdr-amazon-B00267SFKC-desktop-9.jpg)
-![3.10](images/19e0bbaa3af2kdr-amazon-B00267SFKC-desktop-10.jpg)
 
 
 ## https://tryalum.com/products/honeycomb-gel-seat-cushion
