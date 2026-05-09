@@ -63,16 +63,10 @@ _15 text notes · 126 images (0 mirrored) · 28 frames (hierarchical)._
 
 ### Healthson — healthson.de (5,803 mo / 53 ads)
 
-**Sticky 1 [#FFEB3B]:** https://www.amazon.com/dp/B0D2KBYYJ4
-Price: CAD 26.01
-4.5 out of 5 stars, rating details
-
 - Screenshot 1 (not mirrored — only available locally)
 - Screenshot 2 (not mirrored — only available locally)
 - Screenshot 3 (not mirrored — only available locally)
 - Screenshot 4 (not mirrored — only available locally)
-- Screenshot 5 (not mirrored — only available locally)
-- Screenshot 6 (not mirrored — only available locally)
 
 ### FlexHealth — flexhealth.store (5,418 mo / 30 ads)
 
@@ -114,13 +108,8 @@ Price: CAD 26.01
 - Screenshot 2 (not mirrored — only available locally)
 - Screenshot 3 (not mirrored — only available locally)
 - Screenshot 4 (not mirrored — only available locally)
-- Screenshot 5 (not mirrored — only available locally)
 
 ### Evorola — evorola.com (2,051 mo / 45 ads)
-
-**Sticky 1 [#FFEB3B]:** https://www.amazon.com/dp/B000095SGT
-Price: CAD 15.32
-4.5 out of 5 stars, rating details
 
 - Screenshot 1 (not mirrored — only available locally)
 - Screenshot 2 (not mirrored — only available locally)
@@ -147,7 +136,6 @@ Price: CAD 15.32
 - Screenshot 2 (not mirrored — only available locally)
 - Screenshot 3 (not mirrored — only available locally)
 - Screenshot 4 (not mirrored — only available locally)
-- Screenshot 5 (not mirrored — only available locally)
 
 ### Merryback — merryback.com (331 mo / 0 ads)
 
@@ -175,33 +163,41 @@ Price: CAD 41.04
 Price: CAD 82.15
 4.4 out of 5 stars, rating details
 
-**Sticky 5 [#FFEB3B]:** https://www.amazon.com/dp/B0BYNTBFG3
+**Sticky 5 [#FFEB3B]:** https://www.amazon.com/dp/B0D2KBYYJ4
+Price: CAD 26.01
+4.5 out of 5 stars, rating details
+
+**Sticky 6 [#FFEB3B]:** https://www.amazon.com/dp/B0BYNTBFG3
 Price: CAD 64.35
 4.5 out of 5 stars, rating details
 
-**Sticky 6 [#FFEB3B]:** https://www.amazon.com/dp/B00ZN0HZ78
+**Sticky 7 [#FFEB3B]:** https://www.amazon.com/dp/B000095SGT
+Price: CAD 15.32
+4.5 out of 5 stars, rating details
+
+**Sticky 8 [#FFEB3B]:** https://www.amazon.com/dp/B00ZN0HZ78
 Price: CAD 28.83
 4.4 out of 5 stars, rating details
 
-**Sticky 7 [#FFEB3B]:** https://www.amazon.com/dp/B0F3DGYDHY
+**Sticky 9 [#FFEB3B]:** https://www.amazon.com/dp/B0F3DGYDHY
 Price: CAD 24.64
 4.4 out of 5 stars, rating details
 
-**Sticky 8 [#FFEB3B]:** https://www.amazon.com/dp/B0CMTQKPS4
+**Sticky 10 [#FFEB3B]:** https://www.amazon.com/dp/B0CMTQKPS4
 Price: CAD 41.07
 4.2 out of 5 stars, rating details
 
-**Sticky 9 [#FFEB3B]:** https://www.amazon.com/dp/B078K759HK
+**Sticky 11 [#FFEB3B]:** https://www.amazon.com/dp/B078K759HK
 Price: CAD 38.28
 4.3 out of 5 stars, rating details
 
-**Sticky 10 [#FFEB3B]:** FEATOL Back Brace Support Belt-Lumbar Support Back Brace for Back Pain, Sciatica, Scoliosis, Herniated Disc Adjustable Support Straps-Lower Back Brace with Removable Lumbar Pad for Men & Women
+**Sticky 12 [#FFEB3B]:** FEATOL Back Brace Support Belt-Lumbar Support Back Brace for Back Pain, Sciatica, Scoliosis, Herniated Disc Adjustable Support Straps-Lower Back Brace with Removable Lumbar Pad for Men & Women
 https://www.amazon.com/dp/B07WZZFL9T
 
-**Sticky 11 [#FFEB3B]:** FEATOL Lower Back Brace with 5 Reinforced Stays for Women and Men, Adjustable Snug-Fit Lumbar Support Belt for Work, Size L, Waist 34.3-38inches
+**Sticky 13 [#FFEB3B]:** FEATOL Lower Back Brace with 5 Reinforced Stays for Women and Men, Adjustable Snug-Fit Lumbar Support Belt for Work, Size L, Waist 34.3-38inches
 https://www.amazon.com/dp/B0DZH985D5
 
-**Sticky 12 [#FFEB3B]:** MUELLER Sports Medicine Lumbar Back Brace with Removable Pad, Ideal for Upper and Lower Back Pain, Relief & Support for Men and Women, Strains, Sciatica, Scoliosis
+**Sticky 14 [#FFEB3B]:** MUELLER Sports Medicine Lumbar Back Brace with Removable Pad, Ideal for Upper and Lower Back Pain, Relief & Support for Men and Women, Strains, Sciatica, Scoliosis
 https://www.amazon.com/dp/B00267SFKC
 
 - Screenshot 1 (not mirrored — only available locally)
@@ -214,6 +210,10 @@ https://www.amazon.com/dp/B00267SFKC
 - Screenshot 8 (not mirrored — only available locally)
 - Screenshot 9 (not mirrored — only available locally)
 - Screenshot 10 (not mirrored — only available locally)
+- Screenshot 11 (not mirrored — only available locally)
+- Screenshot 12 (not mirrored — only available locally)
+- Screenshot 13 (not mirrored — only available locally)
+- Screenshot 14 (not mirrored — only available locally)
 
 ## https://tryalum.com/products/honeycomb-gel-seat-cushion
 
