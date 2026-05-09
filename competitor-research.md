@@ -1,6 +1,6 @@
 # Research
 
-_1 text notes · 51 images (51 mirrored) · 10 frames._
+_1 text notes · 114 images (0 mirrored) · 28 frames._
 
 ## neocushion https://neocushion.com/en-ca/products/neocushion
 
@@ -8,395 +8,528 @@ _1 text notes · 51 images (51 mirrored) · 10 frames._
 
 https://neocushion.com/en-ca/products/neocushion
 
-### Screenshot 1 — 6 tiles (top → bottom)
+### Screenshot 1 (not mirrored — only available locally)
 
-![Screenshot 1 tile 1/6](images/19e0153c169ezn2-1.jpg)
-![Screenshot 1 tile 2/6](images/19e0153c169ezn2-2.jpg)
-![Screenshot 1 tile 3/6](images/19e0153c169ezn2-3.jpg)
-![Screenshot 1 tile 4/6](images/19e0153c169ezn2-4.jpg)
-![Screenshot 1 tile 5/6](images/19e0153c169ezn2-5.jpg)
-![Screenshot 1 tile 6/6](images/19e0153c169ezn2-6.jpg)
-
-### Screenshot 2 — 5 tiles (top → bottom)
-
-![Screenshot 2 tile 1/5](images/19e015703b1jsap-1.jpg)
-![Screenshot 2 tile 2/5](images/19e015703b1jsap-2.jpg)
-![Screenshot 2 tile 3/5](images/19e015703b1jsap-3.jpg)
-![Screenshot 2 tile 4/5](images/19e015703b1jsap-4.jpg)
-![Screenshot 2 tile 5/5](images/19e015703b1jsap-5.jpg)
+### Screenshot 2 (not mirrored — only available locally)
 
 ---
 
 ## Neurogena https://www.neurogena.us/productse
 
-### Screenshot 1 — 11 tiles (top → bottom)
+### Screenshot 1 (not mirrored — only available locally)
 
-![Screenshot 1 tile 1/11](images/19e0180a103br32-1.jpg)
-![Screenshot 1 tile 2/11](images/19e0180a103br32-2.jpg)
-![Screenshot 1 tile 3/11](images/19e0180a103br32-3.jpg)
-![Screenshot 1 tile 4/11](images/19e0180a103br32-4.jpg)
-![Screenshot 1 tile 5/11](images/19e0180a103br32-5.jpg)
-![Screenshot 1 tile 6/11](images/19e0180a103br32-6.jpg)
-![Screenshot 1 tile 7/11](images/19e0180a103br32-7.jpg)
-![Screenshot 1 tile 8/11](images/19e0180a103br32-8.jpg)
-![Screenshot 1 tile 9/11](images/19e0180a103br32-9.jpg)
-![Screenshot 1 tile 10/11](images/19e0180a103br32-10.jpg)
-![Screenshot 1 tile 11/11](images/19e0180a103br32-11.jpg)
+### Screenshot 2 (not mirrored — only available locally)
 
-### Screenshot 2 — 8 tiles (top → bottom)
+### Screenshot 3 (not mirrored — only available locally)
 
-![Screenshot 2 tile 1/8](images/19e0180a1a1844i-1.jpg)
-![Screenshot 2 tile 2/8](images/19e0180a1a1844i-2.jpg)
-![Screenshot 2 tile 3/8](images/19e0180a1a1844i-3.jpg)
-![Screenshot 2 tile 4/8](images/19e0180a1a1844i-4.jpg)
-![Screenshot 2 tile 5/8](images/19e0180a1a1844i-5.jpg)
-![Screenshot 2 tile 6/8](images/19e0180a1a1844i-6.jpg)
-![Screenshot 2 tile 7/8](images/19e0180a1a1844i-7.jpg)
-![Screenshot 2 tile 8/8](images/19e0180a1a1844i-8.jpg)
+### Screenshot 4 (not mirrored — only available locally)
 
-### Screenshot 3 — 2 tiles (top → bottom)
+### Screenshot 5 (not mirrored — only available locally)
 
-![Screenshot 3 tile 1/2](images/19e0199e838sj0j-1.jpg)
-![Screenshot 3 tile 2/2](images/19e0199e838sj0j-2.jpg)
+### Screenshot 6 (not mirrored — only available locally)
 
-### Screenshot 4
+### Screenshot 7 (not mirrored — only available locally)
 
-![Screenshot 4](images/19e01a146a3xsp5.jpg)
+### Screenshot 8 (not mirrored — only available locally)
 
-### Screenshot 5
+### Screenshot 9 (not mirrored — only available locally)
 
-![Screenshot 5](images/19e01a146a4oj7o.jpg)
+### Screenshot 10 (not mirrored — only available locally)
 
-### Screenshot 6
+### Screenshot 11 (not mirrored — only available locally)
 
-![Screenshot 6](images/19e01a146a6mg1y.jpg)
+### Screenshot 12 (not mirrored — only available locally)
 
-### Screenshot 7
+### Screenshot 13 (not mirrored — only available locally)
 
-![Screenshot 7](images/19e01a146a77akp.jpg)
+### Screenshot 14 (not mirrored — only available locally)
 
-### Screenshot 8
+### Screenshot 15 (not mirrored — only available locally)
 
-![Screenshot 8](images/19e01a146a8ju4x.jpg)
+### Screenshot 16 (not mirrored — only available locally)
 
-### Screenshot 9
+### Screenshot 17 (not mirrored — only available locally)
 
-![Screenshot 9](images/19e01a1a516v8si.jpg)
+### Screenshot 18 (not mirrored — only available locally)
 
-### Screenshot 10
+### Screenshot 19 (not mirrored — only available locally)
 
-![Screenshot 10](images/19e01a1a5187t97.jpg)
+### Screenshot 20 (not mirrored — only available locally)
 
-### Screenshot 11
+### Screenshot 21 (not mirrored — only available locally)
 
-![Screenshot 11](images/19e01a1a519fcyc.jpg)
+### Screenshot 22 (not mirrored — only available locally)
 
-### Screenshot 12
+### Screenshot 23 (not mirrored — only available locally)
 
-![Screenshot 12](images/19e01a1a51ajxmi.jpg)
+### Screenshot 24 (not mirrored — only available locally)
 
-### Screenshot 13
+### Screenshot 25 (not mirrored — only available locally)
 
-![Screenshot 13](images/19e01a1a51b70o4.jpg)
+### Screenshot 26 (not mirrored — only available locally)
 
-### Screenshot 14
+### Screenshot 27 (not mirrored — only available locally)
 
-![Screenshot 14](images/19e01a1a51cjjxy.jpg)
+### Screenshot 28 (not mirrored — only available locally)
 
-### Screenshot 15
+### Screenshot 29 (not mirrored — only available locally)
 
-![Screenshot 15](images/19e01a1e08bpng4.jpg)
+### Screenshot 30 (not mirrored — only available locally)
 
-### Screenshot 16
+### Screenshot 31 (not mirrored — only available locally)
 
-![Screenshot 16](images/19e01a1e08c2ngu.jpg)
+### Screenshot 32 (not mirrored — only available locally)
 
-### Screenshot 17
+### Screenshot 33 (not mirrored — only available locally)
 
-![Screenshot 17](images/19e01a1e08ecndp.jpg)
+### Screenshot 34 (not mirrored — only available locally)
 
-### Screenshot 18
+### Screenshot 35 (not mirrored — only available locally)
 
-![Screenshot 18](images/19e01a1e08f3pj8.jpg)
+### Screenshot 36 (not mirrored — only available locally)
 
-### Screenshot 19
+### Screenshot 37 (not mirrored — only available locally)
 
-![Screenshot 19](images/19e01a1e090i1kh.jpg)
+### Screenshot 38 (not mirrored — only available locally)
 
-### Screenshot 20
+### Screenshot 39 (not mirrored — only available locally)
 
-![Screenshot 20](images/19e01a1e091taba.jpg)
-
-### Screenshot 21
-
-![Screenshot 21](images/19e01a1e092lp1y.jpg)
-
-### Screenshot 22
-
-![Screenshot 22](images/19e01a20dc7lt4u.jpg)
-
-### Screenshot 23
-
-![Screenshot 23](images/19e01a2154brvuo.jpg)
-
-### Screenshot 24
-
-![Screenshot 24](images/19e01a21a3erq6e.jpg)
-
-### Screenshot 25
-
-![Screenshot 25](images/19e01a24314na1o.jpg)
-
-### Screenshot 26
-
-![Screenshot 26](images/19e01a243157b1a.jpg)
-
-### Screenshot 27
-
-![Screenshot 27](images/19e01a24316yv6h.jpg)
-
-### Screenshot 28
-
-![Screenshot 28](images/19e01a243170kjq.jpg)
-
-### Screenshot 29
-
-![Screenshot 29](images/19e01a263eahiyf.jpg)
-
-### Screenshot 30
-
-![Screenshot 30](images/19e01a26af177cw.jpg)
-
-### Screenshot 31
-
-![Screenshot 31](images/19e01a27b52kw0x.jpg)
-
-### Screenshot 32
-
-![Screenshot 32](images/19e01a28403h3xj.jpg)
-
-### Screenshot 33
-
-![Screenshot 33](images/19e01a28d14szi9.jpg)
-
-### Screenshot 34
-
-![Screenshot 34](images/19e01a296653bew.jpg)
-
-### Screenshot 35
-
-![Screenshot 35](images/19e01a2a419o32a.jpg)
+### Screenshot 40 (not mirrored — only available locally)
 
 ---
 
 ## https://readyrocker.com/pages/rr-int-0001-lis-neo
 
-### Screenshot 1 — 17 tiles (top → bottom)
+### Screenshot 1 (not mirrored — only available locally)
 
-![Screenshot 1 tile 1/17](images/19e0181c053ae4x-1.jpg)
-![Screenshot 1 tile 2/17](images/19e0181c053ae4x-2.jpg)
-![Screenshot 1 tile 3/17](images/19e0181c053ae4x-3.jpg)
-![Screenshot 1 tile 4/17](images/19e0181c053ae4x-4.jpg)
-![Screenshot 1 tile 5/17](images/19e0181c053ae4x-5.jpg)
-![Screenshot 1 tile 6/17](images/19e0181c053ae4x-6.jpg)
-![Screenshot 1 tile 7/17](images/19e0181c053ae4x-7.jpg)
-![Screenshot 1 tile 8/17](images/19e0181c053ae4x-8.jpg)
-![Screenshot 1 tile 9/17](images/19e0181c053ae4x-9.jpg)
-![Screenshot 1 tile 10/17](images/19e0181c053ae4x-10.jpg)
-![Screenshot 1 tile 11/17](images/19e0181c053ae4x-11.jpg)
-![Screenshot 1 tile 12/17](images/19e0181c053ae4x-12.jpg)
-![Screenshot 1 tile 13/17](images/19e0181c053ae4x-13.jpg)
-![Screenshot 1 tile 14/17](images/19e0181c053ae4x-14.jpg)
-![Screenshot 1 tile 15/17](images/19e0181c053ae4x-15.jpg)
-![Screenshot 1 tile 16/17](images/19e0181c053ae4x-16.jpg)
-![Screenshot 1 tile 17/17](images/19e0181c053ae4x-17.jpg)
+### Screenshot 2 (not mirrored — only available locally)
 
-### Screenshot 2 — 8 tiles (top → bottom)
-
-![Screenshot 2 tile 1/8](images/19e0181c125ncw5-1.jpg)
-![Screenshot 2 tile 2/8](images/19e0181c125ncw5-2.jpg)
-![Screenshot 2 tile 3/8](images/19e0181c125ncw5-3.jpg)
-![Screenshot 2 tile 4/8](images/19e0181c125ncw5-4.jpg)
-![Screenshot 2 tile 5/8](images/19e0181c125ncw5-5.jpg)
-![Screenshot 2 tile 6/8](images/19e0181c125ncw5-6.jpg)
-![Screenshot 2 tile 7/8](images/19e0181c125ncw5-7.jpg)
-![Screenshot 2 tile 8/8](images/19e0181c125ncw5-8.jpg)
+### Screenshot 3 (not mirrored — only available locally)
 
 ---
 
 ## https://nordicscomforts.com/products/ortopedisk-rygg-och-sittkuddee
 
-### Screenshot 1 — 10 tiles (top → bottom)
+### Screenshot 1 (not mirrored — only available locally)
 
-![Screenshot 1 tile 1/10](images/19e0180ef5dtd6p-1.jpg)
-![Screenshot 1 tile 2/10](images/19e0180ef5dtd6p-2.jpg)
-![Screenshot 1 tile 3/10](images/19e0180ef5dtd6p-3.jpg)
-![Screenshot 1 tile 4/10](images/19e0180ef5dtd6p-4.jpg)
-![Screenshot 1 tile 5/10](images/19e0180ef5dtd6p-5.jpg)
-![Screenshot 1 tile 6/10](images/19e0180ef5dtd6p-6.jpg)
-![Screenshot 1 tile 7/10](images/19e0180ef5dtd6p-7.jpg)
-![Screenshot 1 tile 8/10](images/19e0180ef5dtd6p-8.jpg)
-![Screenshot 1 tile 9/10](images/19e0180ef5dtd6p-9.jpg)
-![Screenshot 1 tile 10/10](images/19e0180ef5dtd6p-10.jpg)
-
-### Screenshot 2 — 8 tiles (top → bottom)
-
-![Screenshot 2 tile 1/8](images/19e0180ef6axgcb-1.jpg)
-![Screenshot 2 tile 2/8](images/19e0180ef6axgcb-2.jpg)
-![Screenshot 2 tile 3/8](images/19e0180ef6axgcb-3.jpg)
-![Screenshot 2 tile 4/8](images/19e0180ef6axgcb-4.jpg)
-![Screenshot 2 tile 5/8](images/19e0180ef6axgcb-5.jpg)
-![Screenshot 2 tile 6/8](images/19e0180ef6axgcb-6.jpg)
-![Screenshot 2 tile 7/8](images/19e0180ef6axgcb-7.jpg)
-![Screenshot 2 tile 8/8](images/19e0180ef6axgcb-8.jpg)
+### Screenshot 2 (not mirrored — only available locally)
 
 ---
 
 ## https://volosso.com/products/coolgel-seat-cushion-p2?_abr=1
 
-### Screenshot 1 — 6 tiles (top → bottom)
-
-![Screenshot 1 tile 1/6](images/19e0181fbf39c67-1.jpg)
-![Screenshot 1 tile 2/6](images/19e0181fbf39c67-2.jpg)
-![Screenshot 1 tile 3/6](images/19e0181fbf39c67-3.jpg)
-![Screenshot 1 tile 4/6](images/19e0181fbf39c67-4.jpg)
-![Screenshot 1 tile 5/6](images/19e0181fbf39c67-5.jpg)
-![Screenshot 1 tile 6/6](images/19e0181fbf39c67-6.jpg)
+### Screenshot 1 (not mirrored — only available locally)
 
 ---
 
 ## https://tryalum.com/products/honeycomb-gel-seat-cushion
 
-### Screenshot 1 — 5 tiles (top → bottom)
+### Screenshot 1 (not mirrored — only available locally)
 
-![Screenshot 1 tile 1/5](images/19e018212f6otiu-1.jpg)
-![Screenshot 1 tile 2/5](images/19e018212f6otiu-2.jpg)
-![Screenshot 1 tile 3/5](images/19e018212f6otiu-3.jpg)
-![Screenshot 1 tile 4/5](images/19e018212f6otiu-4.jpg)
-![Screenshot 1 tile 5/5](images/19e018212f6otiu-5.jpg)
-
-### Screenshot 2 — 5 tiles (top → bottom)
-
-![Screenshot 2 tile 1/5](images/19e018213777m3j-1.jpg)
-![Screenshot 2 tile 2/5](images/19e018213777m3j-2.jpg)
-![Screenshot 2 tile 3/5](images/19e018213777m3j-3.jpg)
-![Screenshot 2 tile 4/5](images/19e018213777m3j-4.jpg)
-![Screenshot 2 tile 5/5](images/19e018213777m3j-5.jpg)
+### Screenshot 2 (not mirrored — only available locally)
 
 ---
 
 ## https://puregelcushion.com/products/pure-gel-seat-cushion-1
 
-### Screenshot 1 — 6 tiles (top → bottom)
+### Screenshot 1 (not mirrored — only available locally)
 
-![Screenshot 1 tile 1/6](images/19e01c969e4o4ei-1.jpg)
-![Screenshot 1 tile 2/6](images/19e01c969e4o4ei-2.jpg)
-![Screenshot 1 tile 3/6](images/19e01c969e4o4ei-3.jpg)
-![Screenshot 1 tile 4/6](images/19e01c969e4o4ei-4.jpg)
-![Screenshot 1 tile 5/6](images/19e01c969e4o4ei-5.jpg)
-![Screenshot 1 tile 6/6](images/19e01c969e4o4ei-6.jpg)
-
-### Screenshot 2 — 6 tiles (top → bottom)
-
-![Screenshot 2 tile 1/6](images/19e01c96aabrydf-1.jpg)
-![Screenshot 2 tile 2/6](images/19e01c96aabrydf-2.jpg)
-![Screenshot 2 tile 3/6](images/19e01c96aabrydf-3.jpg)
-![Screenshot 2 tile 4/6](images/19e01c96aabrydf-4.jpg)
-![Screenshot 2 tile 5/6](images/19e01c96aabrydf-5.jpg)
-![Screenshot 2 tile 6/6](images/19e01c96aabrydf-6.jpg)
+### Screenshot 2 (not mirrored — only available locally)
 
 ---
 
 ## https://livena-shop.com/products/livena-personalized-lumbar-support-cushion-for-pain-relief?fbclid=IwZXh0bgNhZW0CMTAAYnJpZBExNTdNVm51MThaOXdEV2VFS3NydGMGYXBwX2lkDzU0MTYzOTQ5Mzg4OTAyNQABHtORflzvhwiUGqu6K-MaPQU58SQl9zYzhCbnygu--2UzcET8abi25ONJkgZ9_aem_eTyV9tDoZsjLz6Nc149Ctw
 
-### Screenshot 1 — 4 tiles (top → bottom)
-
-![Screenshot 1 tile 1/4](images/19e0181fb45rdta-1.jpg)
-![Screenshot 1 tile 2/4](images/19e0181fb45rdta-2.jpg)
-![Screenshot 1 tile 3/4](images/19e0181fb45rdta-3.jpg)
-![Screenshot 1 tile 4/4](images/19e0181fb45rdta-4.jpg)
+### Screenshot 1 (not mirrored — only available locally)
 
 ---
 
 ## https://shoptravlr.com/products/cushion
 
-### Screenshot 1 — 7 tiles (top → bottom)
+### Screenshot 1 (not mirrored — only available locally)
 
-![Screenshot 1 tile 1/7](images/19e01822871w4u1-1.jpg)
-![Screenshot 1 tile 2/7](images/19e01822871w4u1-2.jpg)
-![Screenshot 1 tile 3/7](images/19e01822871w4u1-3.jpg)
-![Screenshot 1 tile 4/7](images/19e01822871w4u1-4.jpg)
-![Screenshot 1 tile 5/7](images/19e01822871w4u1-5.jpg)
-![Screenshot 1 tile 6/7](images/19e01822871w4u1-6.jpg)
-![Screenshot 1 tile 7/7](images/19e01822871w4u1-7.jpg)
-
-### Screenshot 2 — 6 tiles (top → bottom)
-
-![Screenshot 2 tile 1/6](images/19e01823334cdou-1.jpg)
-![Screenshot 2 tile 2/6](images/19e01823334cdou-2.jpg)
-![Screenshot 2 tile 3/6](images/19e01823334cdou-3.jpg)
-![Screenshot 2 tile 4/6](images/19e01823334cdou-4.jpg)
-![Screenshot 2 tile 5/6](images/19e01823334cdou-5.jpg)
-![Screenshot 2 tile 6/6](images/19e01823334cdou-6.jpg)
+### Screenshot 2 (not mirrored — only available locally)
 
 ---
 
-## Dainely Belt 2.0 — https://dainelylab.com/products/dainely-belt
+## Ortho Cushion — https://theorthocushion.com
 
-### Screenshot 1 — 9 tiles (top → bottom)
+### Screenshot 1 (not mirrored — only available locally)
 
-![Screenshot 1 tile 1/9](images/19e089a6f99j2e9-dainelylab-com-products-dainely-belt-desktop-1.jpg)
-![Screenshot 1 tile 2/9](images/19e089a6f99j2e9-dainelylab-com-products-dainely-belt-desktop-2.jpg)
-![Screenshot 1 tile 3/9](images/19e089a6f99j2e9-dainelylab-com-products-dainely-belt-desktop-3.jpg)
-![Screenshot 1 tile 4/9](images/19e089a6f99j2e9-dainelylab-com-products-dainely-belt-desktop-4.jpg)
-![Screenshot 1 tile 5/9](images/19e089a6f99j2e9-dainelylab-com-products-dainely-belt-desktop-5.jpg)
-![Screenshot 1 tile 6/9](images/19e089a6f99j2e9-dainelylab-com-products-dainely-belt-desktop-6.jpg)
-![Screenshot 1 tile 7/9](images/19e089a6f99j2e9-dainelylab-com-products-dainely-belt-desktop-7.jpg)
-![Screenshot 1 tile 8/9](images/19e089a6f99j2e9-dainelylab-com-products-dainely-belt-desktop-8.jpg)
-![Screenshot 1 tile 9/9](images/19e089a6f99j2e9-dainelylab-com-products-dainely-belt-desktop-9.jpg)
+### Screenshot 2 (not mirrored — only available locally)
 
-### Screenshot 2 — 41 tiles (top → bottom)
+---
 
-![Screenshot 2 tile 1/41](images/19e089a6f99j2e9-dainelylab-com-products-dainely-belt-mobile-1.jpg)
-![Screenshot 2 tile 2/41](images/19e089a6f99j2e9-dainelylab-com-products-dainely-belt-mobile-2.jpg)
-![Screenshot 2 tile 3/41](images/19e089a6f99j2e9-dainelylab-com-products-dainely-belt-mobile-3.jpg)
-![Screenshot 2 tile 4/41](images/19e089a6f99j2e9-dainelylab-com-products-dainely-belt-mobile-4.jpg)
-![Screenshot 2 tile 5/41](images/19e089a6f99j2e9-dainelylab-com-products-dainely-belt-mobile-5.jpg)
-![Screenshot 2 tile 6/41](images/19e089a6f99j2e9-dainelylab-com-products-dainely-belt-mobile-6.jpg)
-![Screenshot 2 tile 7/41](images/19e089a6f99j2e9-dainelylab-com-products-dainely-belt-mobile-7.jpg)
-![Screenshot 2 tile 8/41](images/19e089a6f99j2e9-dainelylab-com-products-dainely-belt-mobile-8.jpg)
-![Screenshot 2 tile 9/41](images/19e089a6f99j2e9-dainelylab-com-products-dainely-belt-mobile-9.jpg)
-![Screenshot 2 tile 10/41](images/19e089a6f99j2e9-dainelylab-com-products-dainely-belt-mobile-10.jpg)
-![Screenshot 2 tile 11/41](images/19e089a6f99j2e9-dainelylab-com-products-dainely-belt-mobile-11.jpg)
-![Screenshot 2 tile 12/41](images/19e089a6f99j2e9-dainelylab-com-products-dainely-belt-mobile-12.jpg)
-![Screenshot 2 tile 13/41](images/19e089a6f99j2e9-dainelylab-com-products-dainely-belt-mobile-13.jpg)
-![Screenshot 2 tile 14/41](images/19e089a6f99j2e9-dainelylab-com-products-dainely-belt-mobile-14.jpg)
-![Screenshot 2 tile 15/41](images/19e089a6f99j2e9-dainelylab-com-products-dainely-belt-mobile-15.jpg)
-![Screenshot 2 tile 16/41](images/19e089a6f99j2e9-dainelylab-com-products-dainely-belt-mobile-16.jpg)
-![Screenshot 2 tile 17/41](images/19e089a6f99j2e9-dainelylab-com-products-dainely-belt-mobile-17.jpg)
-![Screenshot 2 tile 18/41](images/19e089a6f99j2e9-dainelylab-com-products-dainely-belt-mobile-18.jpg)
-![Screenshot 2 tile 19/41](images/19e089a6f99j2e9-dainelylab-com-products-dainely-belt-mobile-19.jpg)
-![Screenshot 2 tile 20/41](images/19e089a6f99j2e9-dainelylab-com-products-dainely-belt-mobile-20.jpg)
-![Screenshot 2 tile 21/41](images/19e089a6f99j2e9-dainelylab-com-products-dainely-belt-mobile-21.jpg)
-![Screenshot 2 tile 22/41](images/19e089a6f99j2e9-dainelylab-com-products-dainely-belt-mobile-22.jpg)
-![Screenshot 2 tile 23/41](images/19e089a6f99j2e9-dainelylab-com-products-dainely-belt-mobile-23.jpg)
-![Screenshot 2 tile 24/41](images/19e089a6f99j2e9-dainelylab-com-products-dainely-belt-mobile-24.jpg)
-![Screenshot 2 tile 25/41](images/19e089a6f99j2e9-dainelylab-com-products-dainely-belt-mobile-25.jpg)
-![Screenshot 2 tile 26/41](images/19e089a6f99j2e9-dainelylab-com-products-dainely-belt-mobile-26.jpg)
-![Screenshot 2 tile 27/41](images/19e089a6f99j2e9-dainelylab-com-products-dainely-belt-mobile-27.jpg)
-![Screenshot 2 tile 28/41](images/19e089a6f99j2e9-dainelylab-com-products-dainely-belt-mobile-28.jpg)
-![Screenshot 2 tile 29/41](images/19e089a6f99j2e9-dainelylab-com-products-dainely-belt-mobile-29.jpg)
-![Screenshot 2 tile 30/41](images/19e089a6f99j2e9-dainelylab-com-products-dainely-belt-mobile-30.jpg)
-![Screenshot 2 tile 31/41](images/19e089a6f99j2e9-dainelylab-com-products-dainely-belt-mobile-31.jpg)
-![Screenshot 2 tile 32/41](images/19e089a6f99j2e9-dainelylab-com-products-dainely-belt-mobile-32.jpg)
-![Screenshot 2 tile 33/41](images/19e089a6f99j2e9-dainelylab-com-products-dainely-belt-mobile-33.jpg)
-![Screenshot 2 tile 34/41](images/19e089a6f99j2e9-dainelylab-com-products-dainely-belt-mobile-34.jpg)
-![Screenshot 2 tile 35/41](images/19e089a6f99j2e9-dainelylab-com-products-dainely-belt-mobile-35.jpg)
-![Screenshot 2 tile 36/41](images/19e089a6f99j2e9-dainelylab-com-products-dainely-belt-mobile-36.jpg)
-![Screenshot 2 tile 37/41](images/19e089a6f99j2e9-dainelylab-com-products-dainely-belt-mobile-37.jpg)
-![Screenshot 2 tile 38/41](images/19e089a6f99j2e9-dainelylab-com-products-dainely-belt-mobile-38.jpg)
-![Screenshot 2 tile 39/41](images/19e089a6f99j2e9-dainelylab-com-products-dainely-belt-mobile-39.jpg)
-![Screenshot 2 tile 40/41](images/19e089a6f99j2e9-dainelylab-com-products-dainely-belt-mobile-40.jpg)
-![Screenshot 2 tile 41/41](images/19e089a6f99j2e9-dainelylab-com-products-dainely-belt-mobile-41.jpg)
+## Coussin Ergo — https://coussin-ergo.com
+
+### Screenshot 1 (not mirrored — only available locally)
+
+### Screenshot 2 (not mirrored — only available locally)
+
+---
+
+## NOVAO — https://novao.de
+
+### Screenshot 1 (not mirrored — only available locally)
+
+### Screenshot 2 (not mirrored — only available locally)
+
+---
+
+## TrenBack — https://trenback.com
+
+### Screenshot 1 (not mirrored — only available locally)
+
+### Screenshot 2 (not mirrored — only available locally)
+
+---
+
+## FORARI Comforts — https://foraricomforts.com
+
+### Screenshot 1 (not mirrored — only available locally)
+
+### Screenshot 2 (not mirrored — only available locally)
+
+---
+
+## RockerMama — https://rockermama.com
+
+### Screenshot 1 (not mirrored — only available locally)
+
+### Screenshot 2 (not mirrored — only available locally)
+
+---
+
+## Back belt Products
+
+### Screenshot 1 (not mirrored — only available locally)
+
+### Screenshot 2 (not mirrored — only available locally)
+
+### Screenshot 3 (not mirrored — only available locally)
+
+### Screenshot 4 (not mirrored — only available locally)
+
+### Screenshot 5 (not mirrored — only available locally)
+
+### Screenshot 6 (not mirrored — only available locally)
+
+### Screenshot 7 (not mirrored — only available locally)
+
+### Screenshot 8 (not mirrored — only available locally)
+
+### Screenshot 9 (not mirrored — only available locally)
+
+### Screenshot 10 (not mirrored — only available locally)
+
+### Screenshot 11 (not mirrored — only available locally)
+
+### Screenshot 12 (not mirrored — only available locally)
+
+### Screenshot 13 (not mirrored — only available locally)
+
+### Screenshot 14 (not mirrored — only available locally)
+
+### Screenshot 15 (not mirrored — only available locally)
+
+### Screenshot 16 (not mirrored — only available locally)
+
+### Screenshot 17 (not mirrored — only available locally)
+
+### Screenshot 18 (not mirrored — only available locally)
+
+### Screenshot 19 (not mirrored — only available locally)
+
+### Screenshot 20 (not mirrored — only available locally)
+
+### Screenshot 21 (not mirrored — only available locally)
+
+### Screenshot 22 (not mirrored — only available locally)
+
+### Screenshot 23 (not mirrored — only available locally)
+
+### Screenshot 24 (not mirrored — only available locally)
+
+### Screenshot 25 (not mirrored — only available locally)
+
+### Screenshot 26 (not mirrored — only available locally)
+
+### Screenshot 27 (not mirrored — only available locally)
+
+### Screenshot 28 (not mirrored — only available locally)
+
+### Screenshot 29 (not mirrored — only available locally)
+
+### Screenshot 30 (not mirrored — only available locally)
+
+### Screenshot 31 (not mirrored — only available locally)
+
+### Screenshot 32 (not mirrored — only available locally)
+
+### Screenshot 33 (not mirrored — only available locally)
+
+### Screenshot 34 (not mirrored — only available locally)
+
+### Screenshot 35 (not mirrored — only available locally)
+
+### Screenshot 36 (not mirrored — only available locally)
+
+### Screenshot 37 (not mirrored — only available locally)
+
+### Screenshot 38 (not mirrored — only available locally)
+
+### Screenshot 39 (not mirrored — only available locally)
+
+### Screenshot 40 (not mirrored — only available locally)
+
+### Screenshot 41 (not mirrored — only available locally)
+
+### Screenshot 42 (not mirrored — only available locally)
+
+### Screenshot 43 (not mirrored — only available locally)
+
+### Screenshot 44 (not mirrored — only available locally)
+
+### Screenshot 45 (not mirrored — only available locally)
+
+### Screenshot 46 (not mirrored — only available locally)
+
+### Screenshot 47 (not mirrored — only available locally)
+
+### Screenshot 48 (not mirrored — only available locally)
+
+### Screenshot 49 (not mirrored — only available locally)
+
+### Screenshot 50 (not mirrored — only available locally)
+
+### Screenshot 51 (not mirrored — only available locally)
+
+### Screenshot 52 (not mirrored — only available locally)
+
+### Screenshot 53 (not mirrored — only available locally)
+
+### Screenshot 54 (not mirrored — only available locally)
+
+### Screenshot 55 (not mirrored — only available locally)
+
+### Screenshot 56 (not mirrored — only available locally)
+
+### Screenshot 57 (not mirrored — only available locally)
+
+### Screenshot 58 (not mirrored — only available locally)
+
+### Screenshot 59 (not mirrored — only available locally)
+
+### Screenshot 60 (not mirrored — only available locally)
+
+### Screenshot 61 (not mirrored — only available locally)
+
+### Screenshot 62 (not mirrored — only available locally)
+
+### Screenshot 63 (not mirrored — only available locally)
+
+### Screenshot 64 (not mirrored — only available locally)
+
+### Screenshot 65 (not mirrored — only available locally)
+
+### Screenshot 66 (not mirrored — only available locally)
+
+### Screenshot 67 (not mirrored — only available locally)
+
+### Screenshot 68 (not mirrored — only available locally)
+
+### Screenshot 69 (not mirrored — only available locally)
+
+### Screenshot 70 (not mirrored — only available locally)
+
+### Screenshot 71 (not mirrored — only available locally)
+
+### Screenshot 72 (not mirrored — only available locally)
+
+### Screenshot 73 (not mirrored — only available locally)
+
+### Screenshot 74 (not mirrored — only available locally)
+
+### Screenshot 75 (not mirrored — only available locally)
+
+### Screenshot 76 (not mirrored — only available locally)
+
+### Screenshot 77 (not mirrored — only available locally)
+
+### Screenshot 78 (not mirrored — only available locally)
+
+### Screenshot 79 (not mirrored — only available locally)
+
+### Screenshot 80 (not mirrored — only available locally)
+
+### Screenshot 81 (not mirrored — only available locally)
+
+### Screenshot 82 (not mirrored — only available locally)
+
+### Screenshot 83 (not mirrored — only available locally)
+
+### Screenshot 84 (not mirrored — only available locally)
+
+### Screenshot 85 (not mirrored — only available locally)
+
+### Screenshot 86 (not mirrored — only available locally)
+
+### Screenshot 87 (not mirrored — only available locally)
+
+### Screenshot 88 (not mirrored — only available locally)
+
+### Screenshot 89 (not mirrored — only available locally)
+
+### Screenshot 90 (not mirrored — only available locally)
+
+### Screenshot 91 (not mirrored — only available locally)
+
+### Screenshot 92 (not mirrored — only available locally)
+
+### Screenshot 93 (not mirrored — only available locally)
+
+---
+
+## Dainely — dainelylab.com (15,210 mo / 0 ads)
+
+### Screenshot 1 (not mirrored — only available locally)
+
+### Screenshot 2 (not mirrored — only available locally)
+
+### Screenshot 3 (not mirrored — only available locally)
+
+### Screenshot 4 (not mirrored — only available locally)
+
+---
+
+## Nuviol — nuviol.com (15,116 mo / 30 ads)
+
+### Screenshot 1 (not mirrored — only available locally)
+
+### Screenshot 2 (not mirrored — only available locally)
+
+### Screenshot 3 (not mirrored — only available locally)
+
+### Screenshot 4 (not mirrored — only available locally)
+
+---
+
+## Healthson — healthson.de (5,803 mo / 53 ads)
+
+### Screenshot 1 (not mirrored — only available locally)
+
+### Screenshot 2 (not mirrored — only available locally)
+
+### Screenshot 3 (not mirrored — only available locally)
+
+### Screenshot 4 (not mirrored — only available locally)
+
+---
+
+## FlexHealth — flexhealth.store (5,418 mo / 30 ads)
+
+### Screenshot 1 (not mirrored — only available locally)
+
+### Screenshot 2 (not mirrored — only available locally)
+
+### Screenshot 3 (not mirrored — only available locally)
+
+### Screenshot 4 (not mirrored — only available locally)
+
+---
+
+## BackPainHelp — backpainhelp.com (4,716 mo / 0 ads)
+
+### Screenshot 1 (not mirrored — only available locally)
+
+### Screenshot 2 (not mirrored — only available locally)
+
+---
+
+## Taquey — taquey.com (4,636 mo / 16 ads)
+
+### Screenshot 1 (not mirrored — only available locally)
+
+### Screenshot 2 (not mirrored — only available locally)
+
+### Screenshot 3 (not mirrored — only available locally)
+
+### Screenshot 4 (not mirrored — only available locally)
+
+---
+
+## Irries — irries.com (4,267 mo / 42 ads)
+
+### Screenshot 1 (not mirrored — only available locally)
+
+### Screenshot 2 (not mirrored — only available locally)
+
+### Screenshot 3 (not mirrored — only available locally)
+
+### Screenshot 4 (not mirrored — only available locally)
+
+---
+
+## Evorola — evorola.com (2,051 mo / 45 ads)
+
+### Screenshot 1 (not mirrored — only available locally)
+
+### Screenshot 2 (not mirrored — only available locally)
+
+### Screenshot 3 (not mirrored — only available locally)
+
+### Screenshot 4 (not mirrored — only available locally)
+
+---
+
+## NervoFix — nervofix.bg (1,371 mo / 36 ads)
+
+### Screenshot 1 (not mirrored — only available locally)
+
+### Screenshot 2 (not mirrored — only available locally)
+
+### Screenshot 3 (not mirrored — only available locally)
+
+### Screenshot 4 (not mirrored — only available locally)
+
+---
+
+## Hongjing — hongjingx.com (1,023 mo / 0 ads)
+
+### Screenshot 1 (not mirrored — only available locally)
+
+### Screenshot 2 (not mirrored — only available locally)
+
+### Screenshot 3 (not mirrored — only available locally)
+
+### Screenshot 4 (not mirrored — only available locally)
+
+### Screenshot 5 (not mirrored — only available locally)
+
+---
+
+## WellHealthis — wellhealthis.com (450 mo / 0 ads)
+
+### Screenshot 1 (not mirrored — only available locally)
+
+### Screenshot 2 (not mirrored — only available locally)
+
+### Screenshot 3 (not mirrored — only available locally)
+
+### Screenshot 4 (not mirrored — only available locally)
+
+---
+
+## Merryback — merryback.com (331 mo / 0 ads)
+
+### Screenshot 1 (not mirrored — only available locally)
+
+### Screenshot 2 (not mirrored — only available locally)
+
+### Screenshot 3 (not mirrored — only available locally)
+
+### Screenshot 4 (not mirrored — only available locally)
+
+### Screenshot 5 (not mirrored — only available locally)
 
 ---
