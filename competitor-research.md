@@ -145,8 +145,7 @@ _15 text notes · 126 images (0 mirrored) · 28 frames (hierarchical)._
 - Screenshot 4 (not mirrored — only available locally)
 - Screenshot 5 (not mirrored — only available locally)
 
-
-## Amazon — "back belt" SERP top 14 (2026-05-09)
+### Amazon — "back belt" SERP top 14 (2026-05-09)
 
 **Sticky 1 [#FFEB3B]:** https://www.amazon.com/dp/B071G33DC1
 Price: CAD 36.93
@@ -214,6 +213,7 @@ https://www.amazon.com/dp/B00267SFKC
 - Screenshot 12 (not mirrored — only available locally)
 - Screenshot 13 (not mirrored — only available locally)
 - Screenshot 14 (not mirrored — only available locally)
+
 
 ## https://tryalum.com/products/honeycomb-gel-seat-cushion
 
