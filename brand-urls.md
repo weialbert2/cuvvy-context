@@ -4,7 +4,7 @@ Plain-text URL listings of all mirrored screenshot tiles, grouped by canvas fram
 
 **For Claude.ai users:** when you fetch this file, all image URLs inside become "fetched-result-derived" — your `web_fetch` tool will allow fetching each one. Pick whichever brand/section you need and fetch only those URLs (avoid fetching all 496 — context-expensive).
 
-_Generated: 2026-05-09T07:26:07.585261+00:00 · 493 competitor tiles · 0 avatar canvas tiles_
+_Generated: 2026-05-09T07:29:17.467452+00:00 · 493 competitor tiles · 0 avatar canvas tiles_
 
 # Competitor canvas
 
