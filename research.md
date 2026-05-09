@@ -1,21 +1,17 @@
 # Research
 
-_65 text notes · 0 images (0 mirrored) · 5 frames._
+_65 text notes · 0 images (0 mirrored) · 5 frames (hierarchical)._
 
 ## FREETOO Reviews — Amazon (B0BK8SQ2X6, 5★) https://www.amazon.ca/FREETOO-Support-Anti-skid-Herniated-Sciatica/dp/B0BK8SQ2X6/ref=cm_cr_arp_d_product_top?ie=UTF8&th=1
 
-### Sticky 1
-
-Amazon Customer
+**Sticky 1:** Amazon Customer
 5.0 out of 5 stars This is the best lumbar support I've ever found!
 Reviewed in Canada on July 16, 2025
 
 Colour Name: BlackSize: M(waist:33.4''-40.5'')Verified Purchase
 So I never write reviews but felt this one deserved one. I myself read reviews before I purchase anything. I had a terrible back injury 25 years ago and now in addition to that my lumbar spine has some degenerative disc disease and a couple protruding discs so to say the least I suffer immensely with lower back pain. I've been told not to rely on using a back brace but sometimes I need one in order to stand, walk or do daily tasks in the house or yard. The other one I was using kept rolling down and wasn't helping. I saw this one and thought I'd give it a try. To say I was impressed is an understatement! This belt has so much lumbar support and is fully adjustable so you can tighten it right up to give that extra support you need in that lumbar area. I can bend, sit and move with it and it doesn't roll down or slide at all. I kept the little lumbar support pillow in and I even put a gel ice pack in and walked around for hours with it in. This is a fantastic back support and I can't recommend it enough! Sometimes when you purchase from Amazon it's just junk but this is a favorite by far👍
 
-### Sticky 2
-
-M G
+**Sticky 2:** M G
 5.0 out of 5 stars Experience the difference for yourself!👍
 Reviewed in Canada on March 30, 2024
 Colour Name: BlackSize: L(waist:40.5''-47.2'')Verified Purchase
@@ -30,9 +26,7 @@ The attention to detail in the design of this back support belt is evident. The 
 I am satisfied with the FREETOO Back Support Belt. It has exceeded my expectations in terms of support, comfort, and durability. I highly recommend this product to anyone dealing with back pain. Plus, with Freetoo's 100% satisfaction guarantee, you have nothing to lose (except some back pain😊). Give it a try and experience the difference for yourself.
 28 people found this helpful
 
-### Sticky 3
-
-Stephen
+**Sticky 3:** Stephen
 5.0 out of 5 stars Gives me some relief
 Reviewed in Canada on October 18, 2023
 Colour Name: BlackSize: M(waist:33.4''-40.5'')Verified Purchase
@@ -49,9 +43,7 @@ Both sizes of belt fit me. The medium sized one tends to emphasize my paunch a l
 Overall, after a full month of daily wear, I am quite satisfied with my purchases. I have not tried any of the other styles here, so I cannot say this is the best, but it certainly gives me some relief.
 8 people found this helpful
 
-### Sticky 4
-
-Jburt
+**Sticky 4:** Jburt
 5.0 out of 5 stars Great purchase
 Reviewed in Canada on August 8, 2025
 Colour Name: BlackSize: L(waist:40.5''-47.2'')Verified Purchase
@@ -79,9 +71,7 @@ Ghislain Coulombe
 Reviewed in Canada on December 22, 2025
 This product provide a very good support without been inconfortable.
 
-### Sticky 5
-
-Pietro Paolo D'Ascanio
+**Sticky 5:** Pietro Paolo D'Ascanio
 5.0 out of 5 stars Great support!
 Reviewed in Canada on October 14, 2025
 Colour Name: BlackSize: M(waist:33.4''-40.5'')Verified Purchase
@@ -89,9 +79,7 @@ This a great back support! I have recently worn it while demolishing a brick fir
 
 Insight, for people that work during back pain
 
-### Sticky 6
-
-Camylle De Roy
+**Sticky 6:** Camylle De Roy
 5.0 out of 5 stars It's a veritable *Life Changer!!!
 Reviewed in Canada on December 28, 2023
 Colour Name: BlackSize: M(waist:33.4''-40.5'')Verified Purchase
@@ -105,9 +93,7 @@ I highly recommend this product! It's a veritable *Life Changer!!!
 
 - Woman who cooks/enjoys hobbies and this enables it
 
-### Sticky 7
-
-Peggy Brucks — Great brace for not only back pain but also Scoliosis. Highly recommend.
+**Sticky 7:** Peggy Brucks — Great brace for not only back pain but also Scoliosis. Highly recommend.
 
 — —
 
@@ -133,9 +119,7 @@ bithia — great support, good quality.
 
 Stella from Canada — I am thrilled that this FREETOO belt relieved my pain as soon as I tried it on. I definitely have issues with my lower back and struggle with my daily chores. Instant relief!
 
-### Sticky 8
-
-Kimberley
+**Sticky 8:** Kimberley
 5.0 out of 5 stars I bought a second one I like it so much
 Reviewed in Canada on June 28, 2023
 Colour Name: BlackSize: M(waist:33.4''-40.5'')Verified Purchase
@@ -149,9 +133,7 @@ The size chart was easy to read and accurate.
 
 I tested the first one for a couple of weeks, and bought a second one. Now I have one for home, and one for my car so I can always say yes to activities that I shouldn't do without support.
 
-### Sticky 9
-
-Amazon Customer
+**Sticky 9:** Amazon Customer
 5.0 out of 5 stars Highly recommend
 Reviewed in Canada on May 6, 2023
 Colour Name: BlackSize: M(waist:33.4''-40.5'')Verified Purchase
@@ -159,9 +141,7 @@ I have Ehlers-Danlos syndrome and my SI and lower lumbar are among some joints g
 I washed it for the first time the other day and it was super easy and didn't wreck anything. I just hand washed it and hung it up to dry which was pretty quick.
 I don't think I have anything negative to say about this brace and I've been using it very regularly for a couple weeks now.
 
-### Sticky 10
-
-Toune
+**Sticky 10:** Toune
 5.0 out of 5 stars I recommend it because...
 Reviewed in Canada on April 2, 2025
 Colour Name: BlackSize: L(waist:40.5''-47.2'')Verified Purchase
@@ -170,17 +150,13 @@ I had 2 lumbar sprains and my back pain comes back regularly 🥺
 With this support... it's really good for me and in addition, I can continue to work without problems. I have seen a great improvement and would highly recommend it.
 You are between 2 sizes, don't take the biggest one, like me, there is an extension cord!!!
 
-### Sticky 11
-
-Robert Brown
+**Sticky 11:** Robert Brown
 5.0 out of 5 stars Great all around Service.
 Reviewed in Canada on August 18, 2025
 Colour Name: BlackSize: XL(waist:47.5''-53.9'')Verified Purchase
 At 71 things were getting a little hard to do, but once I bought this belt it's much better.h
 
-### Sticky 12
-
-MUscn871 — Works well for lower back issues.
+**Sticky 12:** MUscn871 — Works well for lower back issues.
 
 — —
 
@@ -190,9 +166,7 @@ Lady Di — I bought several Freetoo items and now the belt. I am more than happ
 
 Alain Constantineau — Comfortable.
 
-### Sticky 13
-
-Nikki
+**Sticky 13:** Nikki
 5.0 out of 5 stars Just get it
 Reviewed in Canada on November 20, 2024
 Colour Name: BlackSize: L(waist:40.5''-47.2'')Verified Purchase
@@ -205,22 +179,17 @@ Kim
 Reviewed in Canada on January 20, 2024
 This support changed our vacation for the better. Before I wore this support, walking in museums or simply walking to catch our planes was extremely painful. I had to take several breaks. Apart from the intense pain, it undermined my morale not being able to keep up with my partner and constantly asking him to slow down and wait for me. This support is effective. My pain is significantly reduced. It allows me to walk much longer without pain, and we've had a more harmonious and satisfying vacation.
 
-### Sticky 14
-
-Princessa
+**Sticky 14:** Princessa
 5.0 out of 5 stars Incredible
 Reviewed in Canada on May 19, 2025
 Colour Name: BlackSize: L(waist:40.5''-47.2'')Verified Purchase
 I am a woman and I have 4 herniated discs
 I work physically and this belt is great, as soon as I put it on I immediately feel relief and comfort
 
----
 
 ## Herniated Disc/ Back Pain Reddit Threads
 
-### Sticky 1
-
-Go to backpain
+**Sticky 1:** Go to backpain
 r/backpain
 •
 21d ago
@@ -261,9 +230,7 @@ I’m exhausted, fed up, and tired of living like this, but I’m still trying t
 
 Thanks for reading.
 
-### Sticky 2
-
-I have herniation in L3/L4, L4/L5, and bulging L5/S1. People on here keep saying to walk and stand up straight but no matter what I do I can't do it. I can't even walk to my car, barely can walk to my kitchen. It's excruciating. I am in the boat of feeling like my life is over and it will never get better. I just turned 26. The pain started around April 2025 but got very bad in October 2025, and has just gotten worse every day since then. I am steadily at a 9, 10 feeling like I need an ambulance. I can't do anything, I had to quit both jobs. I got an exercise bike but I can only go for so long. I can't sleep. I wake up at least 5 times every night from the pain. NSAIDs don't work. Ice/heat barely makes a difference. Nothing helps and I don't know what to do anymore. I am seeing a neurosurgeon in May, and I can't fathom dealing with this for that long. Has anyone felt like this and gotten better? :(
+**Sticky 2:** I have herniation in L3/L4, L4/L5, and bulging L5/S1. People on here keep saying to walk and stand up straight but no matter what I do I can't do it. I can't even walk to my car, barely can walk to my kitchen. It's excruciating. I am in the boat of feeling like my life is over and it will never get better. I just turned 26. The pain started around April 2025 but got very bad in October 2025, and has just gotten worse every day since then. I am steadily at a 9, 10 feeling like I need an ambulance. I can't do anything, I had to quit both jobs. I got an exercise bike but I can only go for so long. I can't sleep. I wake up at least 5 times every night from the pain. NSAIDs don't work. Ice/heat barely makes a difference. Nothing helps and I don't know what to do anymore. I am seeing a neurosurgeon in May, and I can't fathom dealing with this for that long. Has anyone felt like this and gotten better? :(
 
 
 
@@ -285,9 +252,7 @@ UPDATE: i ended up meeting my neurosurgeon early because of a cancellation, and 
 
 I really really hope you are able to get help like I did! It genuinely felt like magic and i feel so alive again and walk every day :)
 
-### Sticky 3
-
-Back
+**Sticky 3:** Back
 
 Go to backpain
 r/backpain
@@ -326,9 +291,7 @@ Go to comments
 
 Share
 
-### Sticky 4
-
-Prollyfukd47
+**Sticky 4:** Prollyfukd47
 •
 4mo ago
 I saw that my comment had 700 views so figured I'd update my progress since I'm sure theres a lot of people that feel helpless right now and are going through the same thing... 
@@ -373,9 +336,7 @@ Prollyfukd47
 3mo ago
 Been a month since my last post. Still painkiller free and doing regular PT once a week, still walking as much as I can but its been difficult given its been 0 to -15 the last three weeks.. I canceled my epidural that was scheduled for today and will continue my weekly PT and my home exercises they gave me. 2 months ago it seemed impossible id ever be saying this, I lived with the constant pain for over a year and was ready to give up. Im still not sure how one night im tossing and turning in pain and the next night I suddenly can sleep a whole night but I think I owe it to finally taking that leap and not being afraid of hurting myself did it. I've gone from 234 to 200 pounds in the last 65 days and I believe thats key to some relief. DONT GIVE UP
 
-### Sticky 5
-
-Effective-Intern-484
+**Sticky 5:** Effective-Intern-484
 •
 6mo ago
 I'd like some advice! I (M30) just found out I have a pretty serious disc hernia L5/S1. Injury happened at least 8 weeks ago but finally got an MRI. Injury I believe happened from unloading 5ton steel coils from a container I tried to use good form but I guess I overdid it anyway. I thought it would just be a bulge. But looks much worse than I expected. Been dealing with left leg sciatica for these 8 weeks. Pains have changed over the last 8 weeks. In the beginning the only pain I had was pretty bad sciatic pain when I sat for 5min or more. Then after a few days I started getting a tingling falling asleep feeling under my left foot that would start instantly when I sat down. So I stopped sitting entirely. And only sit when I'm on the toilet. I try to do everything with perfect posture. My back feels weak in 2 places, down at the bottom where my herniated disc is and in the middle where I think I have a slightly dislocated vertebrae. But pain is easily tolerable. I just don't do anything that might be painful. Surprisingly I have not had a lot of pain due to this, I think I have a high pain tolerance but I don't actually know. I've been doing all the wrong things till last week when I found out. Been stretching everything out, my back, my hamstrings, calves, everything even got chiroed regularly. I did somehow not put together that my sciatica was caused by a herniated disc, and wasn't aware how different you treat a HD vs sciatica alone. So now that I know what should I do? I'm reading back mechanic. And it helps a lot but it's not clear if I should start doing the McGill big 3 immediately. Or if I should wait and get more bed rest since my injury is likely still fresh from all the stretching. Or if I should start walking 10000 steps a day. I have not found a fully comfortable sleep position, it's not uncomfortable enough to prevent sleep, I think my mattress is a little soft. Sleeping on the floor makes my back feel good. But my hips and left leg get really tight.
@@ -394,9 +355,7 @@ Here's some images of my back:
 
 Comment Image
 
-### Sticky 6
-
-u/Optimal-Geologist677 avatar
+**Sticky 6:** u/Optimal-Geologist677 avatar
 Optimal-Geologist677
 •
 1mo ago
@@ -404,9 +363,7 @@ Im doing great, I finally was able to start sitting about 2 weeks ago. Still hav
 
 Thanks for asking...
 
-### Sticky 7
-
-Hey fellow disk bulge people.
+**Sticky 7:** Hey fellow disk bulge people.
 
 Im glad to read OP got through it. Im here because Im currently on my third time with a lower lumbar herniated disk.
 
@@ -428,26 +385,20 @@ This time I'd relate it to the first time I got the disk injury. Apparently its 
 
 I hope no one ever experiences this in their neck disks. To heal that I had to lay down for a month. No work at all.
 
-### Sticky 8
-
-u/Valuable_Pineapple77 avatar
+**Sticky 8:** u/Valuable_Pineapple77 avatar
 Valuable_Pineapple77
 •
 10mo ago
 Hate having this handicap, but it’s forcing me to work on squats to get things near my feet. This prevents me from rounding my back. I’m kind of excited about working out the squat muscles
 
-### Sticky 9
-
-u/YesImSleepie avatar
+**Sticky 9:** u/YesImSleepie avatar
 YesImSleepie
 •
 2y ago
 Its been over a year :/ im still young but having this plus left leg sciatica for over a year is so demotivating. I can consider myself lucky since i only really have pain when i move my leg in certain ways or if I bend too much, otherwise it doesnt bother me, and im thankful its not as bad as most other people have.. but the fact that nothing is seemingly working to make it go away makes me really worried that its just going to get worse.
 I just needed to rant somewhere a little, your edit makes me feel a little better and hopeful but man :/
 
-### Sticky 10
-
-Nice-Owl6688
+**Sticky 10:** Nice-Owl6688
 •
 2y ago
 I had the herniation at l4/5 S l5s1 both ther herniation pressing the nerves on 3 places two sides and little centre. I have all kinds of passion from hip, thigh, knee and calf till even toes.
@@ -458,9 +409,7 @@ With litytle walk and laying down is how I spent weeks after weeks until I was a
 
 80 percent recovery was done, then I joined swimming. I did only free style and that too hand pull only for the first week. Next week I could do a full stroke with a slight kick and gradually increase it to a 200 meter lap 5 times with a few minutes rest. And I could pull off 99 percent healed in 4 months.
 
-### Sticky 11
-
-u/invalid_hai avatar
+**Sticky 11:** u/invalid_hai avatar
 invalid_hai
 •
 2y ago
@@ -484,9 +433,7 @@ Share
 8mo ago
 Yes thats the worst part about this. Society doesnt give a shit about disc herniations. Gotta keep driving and sitting for long periods which doesnt let it heal correctly. Just be glad you dont gave to work and take care of kids. Hope youre feeling better.
 
-### Sticky 12
-
-u/Impressive-Piccolo43 avatar
+**Sticky 12:** u/Impressive-Piccolo43 avatar
 Impressive-Piccolo43
 •
 2y ago
@@ -536,9 +483,7 @@ gr8sk8
 •
 8mo ago
 
-### Sticky 13
-
-MaterialRip7555
+**Sticky 13:** MaterialRip7555
 •
 10mo ago
 You story gives me hope I had a car accident herniated disc hands a little numb/weak so wanted to do surgery right away without even trying anything else going to try orthopedic and acupuncture and take the things your taking and see if I can nip this in the butt I’m 35
@@ -560,9 +505,7 @@ Major-Committee4650
 2y ago
 Hello, I am a tennis player too and ironically got a herniated on March 5th of this year. Still in a lot of pain, especially when sitting. I work from home so I don’t have much of a choice. Considering doing surgery next month. How are you doing now and are you able to play tennis again?
 
-### Sticky 14
-
-Upvote
+**Sticky 14:** Upvote
 1
 
 Downvote
@@ -622,9 +565,7 @@ I got better approaching the 8-10 month mark after following what I said above. 
 
 I’m totally better now and doing the best physically I’ve ever felt. I hope that gives you some hope - If you need to DM me please do so.
 
-### Sticky 15
-
-I’m in a similar position to you right now, did they initially give you a steroid or anything? I have a herniated disc in my neck that radiates excruciating pain down my right arm, mostly the shoulder. I’m a firefighter so this is a major issue for me. Happened about a month ago but the last two weeks has been horrible.
+**Sticky 15:** I’m in a similar position to you right now, did they initially give you a steroid or anything? I have a herniated disc in my neck that radiates excruciating pain down my right arm, mostly the shoulder. I’m a firefighter so this is a major issue for me. Happened about a month ago but the last two weeks has been horrible.
 
 Completely unable to sleep outside of maybe 2-4 hours a night in 1.5-2 hour bursts. When I wake up the pain is the worst, 8/10 at best, as I go about my day it improves slightly and then I reset it again every night.
 
@@ -632,13 +573,10 @@ I’ve already had an MRI to confirm and even as someone who has no idea what th
 
 They gave me a steroid dose pack that gradually lowers the dose each day for 6 days. Yesterday I felt a little better from it and cleaned the house and that was a massive mistake as this morning I feel even worse then yesterday morning, a step back. I’m not to sure what to even do at this point. I’ve been exhausting all of my vacation time at work, I have to work 14 hours tonight and then I’m using my final vacation day on Tuesday for my whole 24 hour shift. That gives me basically another whole week to rest, hopefully it makes a difference.
 
----
 
 ## https://www.reddit.com/r/backpain/comments/1lb8du0/what_do_you_think_about_lumbar_support_brace/
 
-### Sticky 1
-
-Go to backpain
+**Sticky 1:** Go to backpain
 r/backpain
 •
 1y ago
@@ -648,48 +586,36 @@ What do you think about lumbar support brace ?
 r/backpain - What do you think about lumbar support brace ?
 I (29m) have chronic lower back pain (L5-S1 hernia) and for me, driving is the worst. My dad, who also has L5-S1 herniation, suggested that I get a lumbar support brace, but I heard mixed opinions on it. What are your thoughts friends ?
 
-### Sticky 2
-
-u/Friendly-Cut-5122 avatar
+**Sticky 2:** u/Friendly-Cut-5122 avatar
 Friendly-Cut-5122
 •
 1y ago
 I wear one when riding my motorcycle due to having chronic low back problems and weakness and it’s changed riding experiences for sure I never ride with out it
 
-### Sticky 3
-
-Inevitable-Tank3463
+**Sticky 3:** Inevitable-Tank3463
 •
 1y ago
 I've worn one on and off since 1998, I don't know how much it actually helped, but it reminded me to be more conscious of my back and use proper body mechanics, because I worked as a CNA and rode horses, neither of them are good for your back. I think it saved me from doing improper movements, and if I was having a lot of pain, I'd put it down lower than usual and get it as tight as possible and it relieved the pain, almost like it was squishing my back back together, like it felt like my SI was loose before and not after
 
-### Sticky 4
-
-signalwarrant
+**Sticky 4:** signalwarrant
 •
 10mo ago
 I had a similar experience. I had an L5 S1 fusion in 2020 then a follow up surgery to remove one of the screws in 2022. I wore lumbar support for years while working around the house, it never really improved my pain level. It also didn't make it worse either. A couple of months ago I decided to get back in the gym and do some light lower back work slowly. After a month or so of slow steady progress, my pain level is at least 50% less than before and I don't wear the lumbar support at all anymore.
 
-### Sticky 5
-
-1R0NS1DE_STEEL
+**Sticky 5:** 1R0NS1DE_STEEL
 •
 1y ago
 For me these things are extremely uncomfortable, and hurt like hell. I am 6 months into a back injury with 4 herniated discs and a torn ligament. If I wear one of these I can only do so for a very short amount of time. They completely crush my sides, as well as my stomach.
 
 The moment I take it off, it's like all of the pain comes back in an instant that I was supposed to have been receiving for the past few hours due to the compression of it.
 
-### Sticky 6
-
-u/scvt2001 avatar
+**Sticky 6:** u/scvt2001 avatar
 scvt2001
 •
 1y ago
 I have the same herniation and tried this brace, it didn’t really do much, especially not for driving. I recommend a lumbar support pillow instead for driving. I tried one during my most recent herniation and it made a huge difference in how comfortable driving was/the pain I was in after driving.
 
-### Sticky 7
-
-SadEquivalent1967
+**Sticky 7:** SadEquivalent1967
 •
 1y ago
 I love mine! Makes a huge difference for me
@@ -761,18 +687,14 @@ Share
 
 1 more reply
 
-### Sticky 8
-
-younggundc
+**Sticky 8:** younggundc
 •
 1y ago
 •
 Edited 1y ago
 I have 2 slipped discs (going in 6 years now) and I bought one after about 2 years ago. Every practitioner told me not to get one and I can tell you that it’s saved my back quite a few times. I only wear it in the workshop or doing any sort of heavy lifting but in my opinion you can’t go wrong. I’ve done Pilates, focus on core etc, none of those will stop you from twisting too far and tweaking a nerve. Just don’t wear it as a daily brace and I think you’ll be fine.
 
-### Sticky 9
-
-u/boostedride12 avatar
+**Sticky 9:** u/boostedride12 avatar
 boostedride12
 •
 1y ago
@@ -796,9 +718,7 @@ Energy_Turtle
 1y ago
 Not for me but I can see why people use them. It's a stabilizing muscle replacement (or assistant depending on how you look at it.) It's does the job that we need muscles to do in order to live pain free. Those muscles aren't going to get stronger if we wear these. They'll go the other way. If someone is using it sparingly while also working on developing those muscles, then they'd probably be ok. But most people put it on and make a habit out of it. I didn't want to do that so it sits in my closet.
 
-### Sticky 10
-
-atomicmnm
+**Sticky 10:** atomicmnm
 •
 1y ago
 They are $20-30. Helps with less strains throughout the day. Ultimately, you will be in more pain at the end of the day than at the beginning because of compression (gravity).
@@ -840,9 +760,7 @@ Iloveellie15
 1y ago
 I’ve worn it after throwing my back out and it seems to help. My doctor just said to not use it long term though and to improve my core instead.
 
-### Sticky 11
-
-old_man_log4n
+**Sticky 11:** old_man_log4n
 •
 1y ago
 This is the exact same thing my Doctor and PT expert told me. Training core is important.
@@ -862,13 +780,10 @@ Share
 
 6 more replies
 
----
 
 ## https://www.amazon.ca/Rakiie-Ergonomic-Adjustable-Breathable-Herniated/dp/B0DB5Q21HF/ref=sr_1_6?crid=3V7ARGEW91M1O&dib=eyJ2IjoiMSJ9.8jtW8CCBk05BG0Th1ldYB7sjXaFJrmGYXaK0fRdjEGoHa1vODniGsLdpNOrFIWczRxTq2W5J2poi_0RAB6LT8X2xqMtsRZzNTPj21KiSwx9T3z_cKGShhltTskbGlCG-3mRhQWCVHjtp2HVXuGeKh1b22EMMrOTg8YvH8sfIgjAOEeBXVCnj4qW8EvvFaVlfnZ3VIIgB0ncfmXNvba7ww4nNEAJo9Q6VeFZaaj9CjiHbn_fUqLA4gMV4YJizkKI_1T6hIjiw3cdht4OcJFh-5ogBBPHo4Ng10YiIYgC0Jms.gNodagkxnKS5WQ0cScrI8mAmkyvS06_4Gzo_HcoUQjU&dib_tag=se&keywords=back%2Bbelt&qid=1778012137&sprefix=back%2Bbel%2Caps%2C181&sr=8-6&th=1
 
-### Sticky 1
-
-Report
+**Sticky 1:** Report
 
 Customer
 1.0 out of 5 stars Doesn't even come close to fitting
@@ -876,17 +791,13 @@ Reviewed in the United States on December 15, 2024
 Colour Name: BlackSize: XX-Large (Waist: 51.2"-62.9")Verified Purchase
 The sizes are wildly inaccurate. If you are large-waisted - DO NOT BUY THIS PRODUCT. I bought the XX-large because it said it not only would fit me, but would also fit someone with a waist 6 inches bigger than me. Now, I have to spend $7.99 to return it with UPS pickup, because I no longer drive and cannot take it to one of the free drop-off points without paying for roundtrip Lyft. Very, very disappointed with this purchase.
 
-### Sticky 2
-
-Jeff
+**Sticky 2:** Jeff
 5.0 out of 5 stars Good and cheap!
 Reviewed in Canada on April 29, 2026
 Colour Name: BlackSize: Medium (Waist: 33.5"-39.4")Verified Purchase
 Provides really good support. In my case it helps quite a bit when golfing. There are some braces not even half as good and more expensive at the pharmacy.
 
-### Sticky 3
-
-Artem
+**Sticky 3:** Artem
 5.0 out of 5 stars Great support for work – adjustable and comfortable
 Reviewed in Canada on February 25, 2026
 Colour Name: BlackSize: Medium (Waist: 33.5"-39.4")Verified Purchase
@@ -894,17 +805,13 @@ This back support belt really helped when I had lower back pain. I work in const
 It’s easy to adjust and tighten to the level that feels comfortable. Provides good support without restricting movement.
 Overall, very helpful and practical for active jobs.
 
-### Sticky 4
-
-Kandace
+**Sticky 4:** Kandace
 5.0 out of 5 stars Great purchase
 Reviewed in Canada on November 7, 2025
 Colour Name: BlackSize: X-Large (Waist: 45.3"-51.2")Verified Purchase
 I found it relieved alot of the pressure in my lower back. I bought it when my disks were bulged and it did help. Wasn't the most comfortable to sit in but if your on your feet it does the job it claims
 
-### Sticky 5
-
-Minh Le
+**Sticky 5:** Minh Le
 5.0 out of 5 stars Best brace for back pain
 Reviewed in Canada on September 23, 2025
 Colour Name: BlackSize: Small (Waist: 27.6"-33.5")Verified Purchase
@@ -912,73 +819,55 @@ This is the best product money can buy, it fits and help me instantly, my back a
 
 I recommend other to try to get its huge benefit
 
-### Sticky 6
-
-Amazon Customer
+**Sticky 6:** Amazon Customer
 5.0 out of 5 stars Mom said it’s good
 Reviewed in Canada on December 2, 2025
 Colour Name: BlackSize: X-Large (Waist: 45.3"-51.2")Verified Purchase
 Got this for my mom. She said it works to ease some of her back pain
 
-### Sticky 7
-
-Dhj
+**Sticky 7:** Dhj
 5.0 out of 5 stars Works well so far
 Reviewed in Canada on October 7, 2025
 Colour Name: BlackSize: Large (Waist: 39.4"-45.3")Verified Purchase
 So far so good. Bought for my boyfriend who has a bad back and strenuous job. He is impressed so far. He wears size 34" pants so I went with the size L and it fits perfectly.
 
-### Sticky 8
-
-Rita Murray
+**Sticky 8:** Rita Murray
 5.0 out of 5 stars Wearing the back brace
 Reviewed in Canada on July 16, 2025
 Colour Name: BlackSize: Medium (Waist: 33.5"-39.4")Verified Purchase
 It is exactly what I ordered and expected. I wanted something to hold me from slouching over all the time when I am on the computer and it does that. Hopefully I will learn to do without it and hold my back straight. It supports my back beautifully.
 
-### Sticky 9
-
-David Belliveau
+**Sticky 9:** David Belliveau
 5.0 out of 5 stars Great, High quality, Durable
 Reviewed in Canada on August 10, 2025
 Colour Name: BlackSize: Medium (Waist: 33.5"-39.4")Verified Purchase
 This brace is excellent, I have 2 slipped discs in my back and could never find any kind of relief, but this takes a bit of weight off and definitely notice a difference in next day pain after hard labour.
 
-### Sticky 10
-
-kevin
+**Sticky 10:** kevin
 5.0 out of 5 stars Comfortable and helpful
 Reviewed in Canada on October 9, 2025
 Colour Name: BlackSize: Small (Waist: 27.6"-33.5")Verified Purchase
 Bought for my wife and she says it has helped her back aches and is also quite comfortable to wear.
 
-### Sticky 11
-
-G ma
+**Sticky 11:** G ma
 5.0 out of 5 stars Instant pain relief
 Reviewed in Canada on February 13, 2025
 Colour Name: BlackSize: Medium (Waist: 33.5"-39.4")Verified Purchase
 This back brace has made such a difference when my sciatica rears its ugly head ! In seconds it make the pain more bearable , and movement easier…. Really corrects my posture and tightens my core … worth every penny , and more
 
-### Sticky 12
-
-Marion M.
+**Sticky 12:** Marion M.
 5.0 out of 5 stars Comfortable back support.
 Reviewed in Canada on April 25, 2025
 Colour Name: BlackSize: X-Large (Waist: 45.3"-51.2")Verified Purchase
 This back support fit me very well and provided the support I needed for my lower back and right hip so that I could walk.
 
-### Sticky 13
-
-Skyler_Rose
+**Sticky 13:** Skyler_Rose
 5.0 out of 5 stars This back brace works great!!
 Reviewed in Canada on April 6, 2025
 Colour Name: BlackSize: X-Large (Waist: 45.3"-51.2")Verified Purchase
 Great quality back brace!! Fits perfectly, I put it inder my clothing and sometimes wear it like a belt. Provides excellent support for my lower back.
 
-### Sticky 14
-
-SoLo
+**Sticky 14:** SoLo
 5.0 out of 5 stars Great Back Support! Really helps, Worth it!!
 Reviewed in Canada on April 27, 2025
 Colour Name: GraySize: Large (Waist: 39.4"-45.3")Amazon Vine Customer Review of Free Product( What's this? )
@@ -1009,9 +898,7 @@ CONS:
 
 Overall, now my back feels less sore and well supported. I can do chores comfortably that I was afraid of doing earlier. Based on my experience, I highly recommend this Rakiie back brace to anyone who has a stressful back muscle!!
 
-### Sticky 15
-
-Report
+**Sticky 15:** Report
 
 Ashley
 5.0 out of 5 stars Quality product
@@ -1020,9 +907,7 @@ Colour Name: BlackSize: X-Large (Waist: 45.3"-51.2")
 Had it for about a week now. It’s really well made and I love that additional tabs at the sides you can pull even tighter to adjust the level of support needed.
 I got it for sciatica pain and it does help, but it doesn’t address the issue further down the leg/ butt/ hip if you have radiating nerve pain, however, I will be using this daily until I can rehab my core.
 
-### Sticky 16
-
-Doug.F
+**Sticky 16:** Doug.F
 5.0 out of 5 stars Good Quality Back Brace.
 Reviewed in Canada on March 22, 2025
 Amazon Vine Customer Review of Free Product( What's this? )
@@ -1033,17 +918,13 @@ As I related earlier, I have just gotten over a bout of sciatica and didn't enjo
 Helpful
 Report
 
-### Sticky 17
-
-BuySavvyCanada
+**Sticky 17:** BuySavvyCanada
 5.0 out of 5 stars supports lower back well and chiropractor approved
 Reviewed in Canada on June 29, 2025
 Amazon Vine Customer Review of Free Product( What's this? )
 I have been having intense lower back pain, so it was recommended that I get a back brace. I ended up having a pinched nerve and this helped to support back where I needed it. This brace is great because you feel supported without being uncomfortable. I walked around the house, did chores and even went out for walks with it on without have to adjust it all the time. I like how adjustable it is to fit around your body. I wanted it to have a tighter fit and I was able to get that with this brace. I ended up bringing it to my chiropractor and they were happy with my choice and said that is supported my back well due to the supportive lumber pad in it. the chiropractor did say it would be more ideal to have the lumbar support throughout the whole lower back but was still pleased with the support it did give.
 
-### Sticky 18
-
-Amazon Customer
+**Sticky 18:** Amazon Customer
 5.0 out of 5 stars Ease up on the back pain
 Reviewed in Canada on May 10, 2025
 Amazon Vine Customer Review of Free Product( What's this? )
@@ -1053,13 +934,10 @@ The brace features 7 stays for added stability, which helps prevent further inju
 
 It fits easily under clothing, making it discreet for everyday use. Whether you’re sitting for long periods, lifting, or doing physical activities, this back brace provides reliable support that helps reduce discomfort and strain
 
----
 
 ## https://www.reddit.com/r/Sciatica/comments/1aexlor/guys_i_fixed_my_sciatica/
 
-### Sticky 1
-
-Back
+**Sticky 1:** Back
 
 Go to Sciatica
 r/Sciatica
@@ -1072,9 +950,7 @@ So I had been dealing with sciatica pain from a herniated disc that I injured wh
 
 My apologies that this is so long winded, and please excuse typos as I am doing this on my phone.
 
-### Sticky 2
-
-Downvote
+**Sticky 2:** Downvote
 
 Reply
 
@@ -1156,13 +1032,10 @@ Sharmonica
 9mo ago
 That desk on Etsy is 50% off until the end of August 2025.
 
----
 
 ## Loose text notes (not in any frame)
 
-### Sticky 1
-
-Kas
+**Sticky 1:** Kas
 1.0 out of 5 stars No back support
 Reviewed in Canada on December 4, 2021
 Size: LargeVerified Purchase
@@ -1177,17 +1050,13 @@ Reviewed in Canada on August 2, 2019
 Size: MediumVerified Purchase
 I have really bad lower back pain and it especially gets worst after sessions at the gym. I thought this would have been really good and address some of the pain according to the raving reviews. First, the Velcro strap was too long and it was never secure or felt secure. I didn’t feel any support so I didn’t feel like it was propping or supporting my lower. It just felt like someone got cardboard and sort of loosely taped it around my lower back area. This is why I rated the comfort as okay—because I didn’t feel anything! This isn’t really cheap either but I thought f it works, it should be worth every penny because everyone only has one back.
 
-### Sticky 2
-
-Rob
+**Sticky 2:** Rob
 1.0 out of 5 stars Very poor quality
 Reviewed in Canada on July 13, 2021
 Size: MediumVerified Purchase
 I purchased this product a little over a month ago and already the velcro is breaking down. I am having to pull the belt tighter and tighter to try and get to a spot where the velcro will hold. I weigh 154lbs so I sm not overweight I purchased this belt to help with the back pain I experience from the multiple sclerosis I have. I am very disappointed with this product and would not recommend. The quality doesn't last.
 
-### Sticky 3
-
-Go to backpain
+**Sticky 3:** Go to backpain
 r/backpain
 •
 2y ago
@@ -1197,9 +1066,7 @@ Lower back pain for weeks and hurts to do the most basic thing
 r/backpain - figure : a diagram of the abdomen.
 About 3 weeks ago i woke up with lower back pain. I dont remember getting hurt or anything like that. Ive attached a picture to point where exactly it hurts, its in the red circle inside the yellow line. It hirts when i try to sit and get up, when i try to go down to pick up something. Laying down on my stomach doesnt hurt and its the only way i can sleep. If i try to move or go on my side it hurts. Nothing seems to make it better. I cant do the most basic things, like cleaning and doing laundry. I havent looked for treatment, ive only look for stretches or exercises to help me get rid of it. But the ones ive come across arent for where my pain area is located.
 
-### Sticky 4
-
-Go to blackladies
+**Sticky 4:** Go to blackladies
 r/blackladies
 •
 2mo ago
@@ -1219,9 +1086,7 @@ Downvote
 191
 Go to comments
 
-### Sticky 5
-
-Deeandrm
+**Sticky 5:** Deeandrm
 •
 2mo ago
 Whatever u do...NEVER GO TO A CHIROPRACTOR. I got swept up in the youtube videos of the cracking sound and almost went to a coworkers brother ( who was a chiro) to have it done. Luckily i didnt but I have a friend who went to a chiropractor and basically ended up with chronic pain and when she was going to sue years later she found out another client had killed him.... so yeah please dont go to a chiropractor for this.
