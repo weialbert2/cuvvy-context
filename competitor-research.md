@@ -214,10 +214,9 @@ https://www.amazon.com/dp/B00267SFKC
 - Screenshot 13 (not mirrored — only available locally)
 - Screenshot 14 (not mirrored — only available locally)
 
+### Tier 1 — Back-pain heavy/mid spenders (10 brands, 2026-05-09)
 
-## Tier 1 — Back-pain heavy/mid spenders (10 brands, 2026-05-09)
-
-### Momcozy — momcozy.com (1233 ads, 1,276,901 reach30d)
+#### Momcozy — momcozy.com (1233 ads, 1,276,901 reach30d)
 
 **Sticky 1 [#FFEB3B]:** **Momcozy** — momcozy.com
 Live ads: 1,233 · 30d reach: 1,276,901
@@ -232,7 +231,7 @@ The BirthEase maternity ball helps relieve pressur…
 - Screenshot 3 (not mirrored — only available locally)
 - Screenshot 4 (not mirrored — only available locally)
 
-### Senzio — senzio.store (495 ads, 875,277 reach30d)
+#### Senzio — senzio.store (495 ads, 875,277 reach30d)
 
 **Sticky 1 [#FFEB3B]:** **Senzio** — senzio.store
 Live ads: 495 · 30d reach: 875,277
@@ -246,7 +245,7 @@ Sample ad: Back pain relief doesn’t have to come from pills, injections, or co
 - Screenshot 3 (not mirrored — only available locally)
 - Screenshot 4 (not mirrored — only available locally)
 
-### Revoget — revoget.com (452 ads, 1,373,513 reach30d)
+#### Revoget — revoget.com (452 ads, 1,373,513 reach30d)
 
 **Sticky 1 [#FFEB3B]:** **Revoget** — revoget.com
 Live ads: 452 · 30d reach: 1,373,513
@@ -260,7 +259,7 @@ Sample ad: Join over 80,000 happy customers who have silenced their back pain. G
 - Screenshot 3 (not mirrored — only available locally)
 - Screenshot 4 (not mirrored — only available locally)
 
-### Corecareshop — corecareshop.com (441 ads, 191,062 reach30d)
+#### Corecareshop — corecareshop.com (441 ads, 191,062 reach30d)
 
 **Sticky 1 [#FFEB3B]:** **Corecareshop** — corecareshop.com
 Live ads: 441 · 30d reach: 191,062
@@ -276,7 +275,7 @@ Make this New Year count. Finally leave b…
 - Screenshot 3 (not mirrored — only available locally)
 - Screenshot 4 (not mirrored — only available locally)
 
-### Chirp — gochirp.com (435 ads, 0 reach30d)
+#### Chirp — gochirp.com (435 ads, 0 reach30d)
 
 **Sticky 1 [#FFEB3B]:** **Chirp** — gochirp.com
 Live ads: 435 · 30d reach: 0
@@ -292,7 +291,7 @@ Skip weekly chiropractor visits and get…
 - Screenshot 3 (not mirrored — only available locally)
 - Screenshot 4 (not mirrored — only available locally)
 
-### OrthoFacts — shoporthevia.com (183 ads, 754,514 reach30d)
+#### OrthoFacts — shoporthevia.com (183 ads, 754,514 reach30d)
 
 **Sticky 1 [#FFEB3B]:** **OrthoFacts** — shoporthevia.com
 Live ads: 183 · 30d reach: 754,514
@@ -308,7 +307,7 @@ Just…
 - Screenshot 3 (not mirrored — only available locally)
 - Screenshot 4 (not mirrored — only available locally)
 
-### Tevera — tevera.shop (140 ads, 4,981 reach30d)
+#### Tevera — tevera.shop (140 ads, 4,981 reach30d)
 
 **Sticky 1 [#FFEB3B]:** **Tevera** — tevera.shop
 Live ads: 140 · 30d reach: 4,981
@@ -323,7 +322,7 @@ If you work f…
 - Screenshot 3 (not mirrored — only available locally)
 - Screenshot 4 (not mirrored — only available locally)
 
-### MLab — massage-lab.com (64 ads, 0 reach30d)
+#### MLab — massage-lab.com (64 ads, 0 reach30d)
 
 **Sticky 1 [#FFEB3B]:** **MLab** — massage-lab.com
 Live ads: 64 · 30d reach: 0
@@ -336,7 +335,7 @@ Whether it's sciatica, sti…
 - Screenshot 1 (not mirrored — only available locally)
 - Screenshot 2 (not mirrored — only available locally)
 
-### Total Relief Today — try.smoothspine.com (57 ads, 4,108 reach30d)
+#### Total Relief Today — try.smoothspine.com (57 ads, 4,108 reach30d)
 
 **Sticky 1 [#FFEB3B]:** **Total Relief Today** — try.smoothspine.com
 Live ads: 57 · 30d reach: 4,108
@@ -350,7 +349,7 @@ Sample ad: MUST SEE: why people with Sciatic back pain are raving about this bre
 - Screenshot 3 (not mirrored — only available locally)
 - Screenshot 4 (not mirrored — only available locally)
 
-### The Health Report — nervilla.com (56 ads, 0 reach30d)
+#### The Health Report — nervilla.com (56 ads, 0 reach30d)
 
 **Sticky 1 [#FFEB3B]:** **The Health Report** — nervilla.com
 Live ads: 56 · 30d reach: 0
@@ -365,9 +364,9 @@ Sample ad: I’ve treated over 21,000 people suffering from chronic back pain - 
 - Screenshot 4 (not mirrored — only available locally)
 
 
-## Tier 2 — Back-pain light/marginal spenders (9 brands, 2026-05-09)
+### Tier 2 — Back-pain light/marginal spenders (9 brands, 2026-05-09)
 
-### WoolleyHug — woolleyhug.com (47 ads, 94,809 reach30d)
+#### WoolleyHug — woolleyhug.com (47 ads, 94,809 reach30d)
 
 **Sticky 1 [#FFEB3B]:** **WoolleyHug** — woolleyhug.com
 Live ads: 47 · 30d reach: 94,809
@@ -382,7 +381,7 @@ Feel real relief in just 15 minutes a da…
 - Screenshot 3 (not mirrored — only available locally)
 - Screenshot 4 (not mirrored — only available locally)
 
-### OrthoRelieve — orthorelieve.com (26 ads, 14,414 reach30d)
+#### OrthoRelieve — orthorelieve.com (26 ads, 14,414 reach30d)
 
 **Sticky 1 [#FFEB3B]:** **OrthoRelieve** — orthorelieve.com
 Live ads: 26 · 30d reach: 14,414
@@ -396,7 +395,7 @@ Sample ad: "I LOVE this product!!! I wish I had bought one ten years ago. I stan
 - Screenshot 3 (not mirrored — only available locally)
 - Screenshot 4 (not mirrored — only available locally)
 
-### Rush Living — theraneckpro.com (16 ads, 30,712 reach30d)
+#### Rush Living — theraneckpro.com (16 ads, 30,712 reach30d)
 
 **Sticky 1 [#FFEB3B]:** **Rush Living** — theraneckpro.com
 Live ads: 16 · 30d reach: 30,712
@@ -410,7 +409,7 @@ Sample ad: MUST SEE: why people with Sciatic back pain are raving about this bre
 - Screenshot 3 (not mirrored — only available locally)
 - Screenshot 4 (not mirrored — only available locally)
 
-### The Natural Posture — thenaturalposture.com (12 ads, 17,412 reach30d)
+#### The Natural Posture — thenaturalposture.com (12 ads, 17,412 reach30d)
 
 **Sticky 1 [#FFEB3B]:** **The Natural Posture** — thenaturalposture.com
 Live ads: 12 · 30d reach: 17,412
@@ -426,7 +425,7 @@ Say goodbye to slouching and back pain! Our Comp…
 - Screenshot 3 (not mirrored — only available locally)
 - Screenshot 4 (not mirrored — only available locally)
 
-### PosturePerfect — posture-perfect.com.au (9 ads, 0 reach30d)
+#### PosturePerfect — posture-perfect.com.au (9 ads, 0 reach30d)
 
 **Sticky 1 [#FFEB3B]:** **PosturePerfect** — posture-perfect.com.au
 Live ads: 9 · 30d reach: 0
@@ -440,7 +439,7 @@ Sample ad: Instantly Relieve Chronic Back Pain and Sciatic Tension with our Lumb
 - Screenshot 3 (not mirrored — only available locally)
 - Screenshot 4 (not mirrored — only available locally)
 
-### Arithmeticlous/H — arithmeticlous.com (8 ads, 0 reach30d)
+#### Arithmeticlous/H — arithmeticlous.com (8 ads, 0 reach30d)
 
 **Sticky 1 [#FFEB3B]:** **Arithmeticlous/H** — arithmeticlous.com
 Live ads: 8 · 30d reach: 0
@@ -454,7 +453,7 @@ Sample ad: If you often feel back pain, insomnia and anxiety, stiffness or stres
 - Screenshot 3 (not mirrored — only available locally)
 - Screenshot 4 (not mirrored — only available locally)
 
-### MobiPal — mobility-pal.com (7 ads, 0 reach30d)
+#### MobiPal — mobility-pal.com (7 ads, 0 reach30d)
 
 **Sticky 1 [#FFEB3B]:** **MobiPal** — mobility-pal.com
 Live ads: 7 · 30d reach: 0
@@ -470,7 +469,7 @@ This sturdy bed rail gives you the perf…
 - Screenshot 3 (not mirrored — only available locally)
 - Screenshot 4 (not mirrored — only available locally)
 
-### VitaSpine — vitaspinehealth.com (4 ads, 0 reach30d)
+#### VitaSpine — vitaspinehealth.com (4 ads, 0 reach30d)
 
 **Sticky 1 [#FFEB3B]:** **VitaSpine** — vitaspinehealth.com
 Live ads: 4 · 30d reach: 0
@@ -484,7 +483,7 @@ Sample ad: MUST SEE: why people with Sciatic back pain are raving about this bre
 - Screenshot 3 (not mirrored — only available locally)
 - Screenshot 4 (not mirrored — only available locally)
 
-### Dr. Sarah Mitchell — ringolf.com (2 ads, 0 reach30d)
+#### Dr. Sarah Mitchell — ringolf.com (2 ads, 0 reach30d)
 
 **Sticky 1 [#FFEB3B]:** **Dr. Sarah Mitchell** — ringolf.com
 Live ads: 2 · 30d reach: 0
@@ -496,6 +495,7 @@ RodPosture stops the slouching that…
 
 - Screenshot 1 (not mirrored — only available locally)
 - Screenshot 2 (not mirrored — only available locally)
+
 
 
 ## https://tryalum.com/products/honeycomb-gel-seat-cushion
