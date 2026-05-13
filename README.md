@@ -1,7 +1,7 @@
 # Cuvvy workspace context
 
 This repo is the **live context** for AI assistants helping with the Cuvvy ecom brand.
-Auto-synced from a local workspace. Last update: `2026-05-12T11:12:49.582656+00:00`.
+Auto-synced from a local workspace. Last update: `2026-05-13T06:33:34.574848+00:00`.
 
 ## Files
 
